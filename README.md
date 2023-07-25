@@ -15,10 +15,13 @@ In early May, Kelvin Williams, was told of the event and proceeded tell others o
 
 Reviewing photos and videos of the _Mount Calvary Missionary Baptist Church_ did in fact show the interior of his Mount Calvary Baptist Church.  The exterior photo on the Facebook page showed Mount Calvary Baptist Church.  Williams and his church were never Missionary Baptist.  Williams thinks the name change is because he works directly for the Creator performing missions and has stated this to the CIA on several occassions.
 
-Williams immediately noticed a wrecked church in the videos and did not recognize anyone or any of the practices in the church's services and decided to write a [letter](Correspondence/20230506-LetterToMCBC.pdf).
+Williams immediately noticed a wrecked church in the videos and did not recognize anyone or any of the practices in the church's services and decided to write a [letter](Correspondence/20230506-LetterToMCBC.pdf).  Williams received a [response](Correspondence/20230506-ResponseToKEW.pdf) the same day.
 
-Williams received a [response](Correspondence/20230506-ResponseToKEW.pdf) the same day.
+The _word soup_ in the [response](Correspondence/20230506-ResponseToKEW.pdf) horrified him, the lack of concern by his family member and pastor about the loss of his mother and sister also confirmed it was not his pastor or church that responded.  Williams also noted the logo at the top of the response depicted his church, with a choir and the choir stands NOT wrecked as he detailed in his letter.
 
-The _word soup_ in the [response](Correspondence/20230506-ResponseToKEW.pdf) horrified him, the lack of concern by his family member and pastor about the loss of his mother and sister also confirmed it was not his pastor or church that responded.
+The charade church retained an attorney which sent Williams a [_Cease and Desist_](20230526-CeaseAndDesistToKEW.HEIC) to which Williams [responded](20230629-ResponseToCeaseAndDesist.pdf), he made sure to tell the lawyer to have a _"Blessed day"_ (translation: "Fuck You") the way his mother would.
 
-The charade church retained an attorney which sent Williams a [_Cease and Desist_](20230526-CeaseAndDesistToKEW.HEIC) to which Williams [responded](20230629-ResponseToCeaseAndDesist.pdf).
+Williams believes the church massacre is part of an ongoing effort to erase his entire family.  Partially because of the way the CIA killed a large group of his family in Sandy Hook, TN, a large family farm, where they destroyed another church and disinterred his family's graveyard.  Patricia Ann Crawley is the child that is the result of a Rogers (of the West Sheepneck Road Rogers family) and a Crawley (of the Crawley Hill Crawleys) hookup.  Williams is **intentionally** vague about his grandparents due to an ongoing effort to steal everything and individuals unable to answer some questions required to take control of trust funds that include DuPont Chemical.  Prince Rogers Nelson is a cousin of Williams, and was used by the Creator also.  The Creator likes using families.  
+
+Williams is currently living out the lyrics in _Sign of the Times._
+
