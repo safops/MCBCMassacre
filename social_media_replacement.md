@@ -1,4 +1,10 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
+ 
+2023-07-27 12:50:09 EDT >>
+
+Due to a rather low-tech hack, I now have two bricked iPhones.  Someone changed my iCloud password, then changed my passcode, so within a day I had my phones go "iPhone Unavailable."  Because of iCloud password change I'm unable to simply erase without encountering Activation Lock.  If anyone is trying to reach me, you can call text me TEMPORARILY at ‪(678) 720-8119.  I recommend e-mail: kelvineugenewilliams@gmail.com.
+
+<<EOM
 
 2023-07-27 12:45:00 EDT >>
 
