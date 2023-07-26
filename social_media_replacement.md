@@ -13,12 +13,15 @@ Calling all Vandaveer fans!   Please check your streaming services to see if Ros
 <<EOM 
 
 2023-07-27 02:10:00 EDT >>
+
 We are either in an NSA walled garden or Twitter has changed its logo..
 Probably a walled garden.  They need us to stay very hidden, if they can't kill us and the message.
 Please keep sharing the link to the repo.  Keep it up until you see this on the evening news.
+
 << EOM
 
 2023-07-27 01:50:00 EDT >>
+
 It's time to ring the bell.
 
 Earthquakes will occur in the following order: 
