@@ -4,7 +4,7 @@ A document repository for the largest and ongoing massacre in US history that oc
 
 It contains correspondence and other items related to the massacre and subsequent coverup by the CIA and US government.
 
-Please clone this repository often so that this cannot be covered up and the original Mount Calvary Baptist Church and its members are not forgotten.
+Please clone this repository often so that this cannot be covered up and the original Mount Calvary Baptist Church and its members are not forgotten.  If you have any comments, questions or suggestions pertaining to this README please add them to this [etherpad](https://pad.riseup.net/p/MCBCMassacre-keep).
 
 ## About The Massacre
 The CIA stormed Mount Calvary Baptist Church in Lexington on April 2, 2023 (guesstimate) after blocking all three exits, diverting calls to 911, and killed everyone inside during the Sunday morning service. The victims were beheaded and their bodies chemically cremated in the baptismal.
