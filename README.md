@@ -40,3 +40,17 @@ The swimming pool was never open, but suddenly after Williams started sharing ho
 When the CIA feared that too many people now knew about the chemical cremation any Williams's "Company" provided residence, they began [resurfacing the pool](Photos/LegacyPoolResurfacing.JPG) at the same time they lstarted the [baptisms](Photos/Baptism.JPG) at Mount Calvary Baptist Church.  Williams thinks this may be the "crumbling wall" sung about by Vandaveer.  The now missing and impersonated Mark Charles Heigdinger of Vandaveer is Williams' one-time best friend.  Williams states that the Creator used Vandaveer to help Williams during a rather dark period in his life, Vandaveer's Divide and Conquer album details his Aunt Mary of Sandy Hook, TN, and her life with Annie whom befriended her after her husband died of COVID-19 ("Resurrection Mary"), Mount Calvary Baptist Church and the Kentucky State Police's finding of bones on the church's property and Williams' attempts to ring the fire bell ("A Mighty Leviathan of Old"), and the Creator's opinion of and plan for some of the players in what is definitely no game ("The Sound and the Fury").  The Vandaveer's  "Dig Down Deep" begins the next chapter of Williams' life with his partner--whom the CIA couldn't kill either.
 
 Practically every missing person in this tragedy has been chemically cremated in their bathtub and bones ground.
+
+### Frequently Asked Questions (FAQ) about the massacre
+
+1.  Why did no one escape?
+
+Williams has provided this hand-drawn [floorplan](Diagrams/MCBCFloorplan.JPG) of the church.  During service, people can enter the back of the church through the unlocked exterior doors to the men's and women's lounges without any detection or raising alarm with any congregant as the doors to the sanctuary are closed.
+
+2. Why did no one call for help?
+
+The CIA utilized COWs (Cellular [tower] on Wheels), which are used by mobile network providers in natural disasters and after accidents that damage a cellular tower.  The CIA parked two within a half mile on either direction of the church causing all mobile phones in the area to connect to them.  Calls were then diverted to either busy signals or fake 911 call takers.
+
+3. Why did no one outside the church notice the massacre?
+
+Williams believes the closest neighbors were likely killed.  The area around the church is not heavily populated or traveled. [Google Maps](https://goo.gl/maps/7nxmwK1AsSyhDiXB6) of 4742 Todds Road, Lexington, KY.
