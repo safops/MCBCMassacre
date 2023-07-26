@@ -54,3 +54,7 @@ The CIA utilized COWs (Cellular [tower] on Wheels), which are used by mobile net
 3. Why did no one outside the church notice the massacre?
 
 Williams believes the closest neighbors were likely killed.  The area around the church is not heavily populated or traveled. [Google Maps](https://goo.gl/maps/7nxmwK1AsSyhDiXB6) of 4742 Todds Road, Lexington, KY.
+
+# Our Social Media
+
+Due to cover-up, censorhip, or unauthorized access to devices by CIA or NSA personnel our social media activties have temporarily stopped.  We have replaced Twitter (@ASOTC23, @kelvinewilliams, @kelvinatlanta) and Facebook (kelvinewilliams - was compromised, kelvineugenewilliams was BANNED shortly after creating the new account) with [this simple log(social_media_replacement.md).  We hope to be on some social network soon.
