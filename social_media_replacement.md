@@ -1,5 +1,11 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-07-27 12:45:00 EDT >>
+
+Calling all Vandaveer fans!   Please check your streaming services to see if Rose's voice has been replaced with another performer's.  Specifically on Divide & Conquer and Dig Down Deep.
+
+<<EOM 
+
 2023-07-27 02:10:00 EDT >>
 We are either in an NSA walled garden or Twitter has changed its logo..
 Probably a walled garden.  They need us to stay very hidden, if they can't kill us and the message.
