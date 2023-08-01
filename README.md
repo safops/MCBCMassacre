@@ -9,6 +9,11 @@ Please clone this repository often so that this cannot be covered up and the ori
 ## UPDATE
 Just moments ago I made a PDF from a, I guess, Apple proprietary HEIC format of a Cease and Desist that you needed to know about. Literally a few seconds after the commit updating the read me I received a knock at the door, and the officer handed me this [order of protection](Correspondence/20230731-ReceivedOOP.pdf). If I had a social media account that wasnt censored already, Id use more colorful language. 
 
+
+Do you know what you get whej atheist actors running a church try to stop a family member from raising hell about his murdered loved ones? [Baptism pools](Photos/PetitionersStatement.png) and long deceaeed grandfathers of the victim filing for protective orders. Rev. Dr. Felix G. Williams has a doctorate in Divinity, he would have never signed anything with a "baptism pool" he would have written baptismal if someone else had written it. 
+
+He knows how to baptize too. But I guess [this is how you actually do it in a baptism pool]_(Photos/Baptism.JPG). New folka in an old church. 
+
 ## About The Massacre
 The CIA stormed Mount Calvary Baptist Church in Lexington on April 2, 2023 after blocking all three exits, diverting calls to 911, and killed everyone inside during the Sunday morning service. The victims were beheaded and their bodies chemically cremated in the baptismal.
 
