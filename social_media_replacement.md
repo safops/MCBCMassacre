@@ -1,4 +1,12 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
+
+2023-07-31 22:00:00 EDT >>
+
+Hey it is Micah. The earthquake epicenters have been updated. Sandy Hook, TN in Maury county will be the first. This is for the church which was on West Sheepneck Rd. 
+
+Im going to be thinking of my family--the Rogers family (thats me), the Crawley family (thats me too), and our relatives they forced out even though their homes were forever--the graveyard next to the church they destroyed firat to make way for the new development. 
+
+<<EOM
  
 2023-07-27 12:50:09 EDT >>
 
