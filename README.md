@@ -12,7 +12,7 @@ Just moments ago I made a PDF from a, I guess, Apple proprietary HEIC format of 
 
 Do you know what you get whej atheist actors running a church try to stop a family member from raising hell about his murdered loved ones? [Baptism pools](Photos/PetitionersStatement.png) and long deceaeed grandfathers of the victim filing for protective orders. Rev. Dr. Felix G. Williams has a doctorate in Divinity, he would have never signed anything with a "baptism pool" he would have written baptismal if someone else had written it. 
 
-He knows how to baptize too. But I guess [this is how you actually do it in a baptism pool]_(Photos/Baptism.JPG). New folka in an old church. 
+He knows how to baptize too. But I guess [this is how you actually do it in a baptism pool](Photos/Baptism.JPG). New folka in an old church. 
 
 ## About The Massacre
 The CIA stormed Mount Calvary Baptist Church in Lexington on April 2, 2023 after blocking all three exits, diverting calls to 911, and killed everyone inside during the Sunday morning service. The victims were beheaded and their bodies chemically cremated in the baptismal.
