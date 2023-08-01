@@ -1,6 +1,6 @@
 # Mount Calvary Baptist Church Massacre
 ## About This Repository
-A document repository for the largest and ongoing massacre in US history that occurred at Mount Calvary Baptist Church in Lexington, KY.  Dont let this be covered up, please clone this repository and pull often.  For non-Git nerds, visit Github repo from a computer and click the green Code button and download Zip--just keep it in a safe space. 
+A document repository for the largest and ongoing massacre in US history that occurred at Mount Calvary Baptist Church in Lexington, KY.  Dont let this be covered up, please clone this repository and pull often.  For non-Git nerds, visit Github repo from a computer and click the green Code button and download Zip--just keep it in a safe space. Every morning on the east coast of the US just after the Sun rises the Sol release is made, it is the then-current repository--[download the Sol now!](https://github.com/MCBCMF/MCBCMassacre/archive/refs/tags/Sol.zip)
 
 The README.md is brief summary of events. Everyone should click the links within. One cannot begin to see the truth until they do. We apologize in advance for anything you read that offends you, we didnt write it, they did. 
 
