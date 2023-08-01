@@ -73,3 +73,5 @@ If you want to contact us, please see this [contact information](Misc/Contact.pd
 
 # Re: Title Searches
 If anyone is looking at purchasing property at or adjacent to Mount Calvary Baptist Church at 4742 Todds Rd, Lexington, KY 40509 should know that Kelvin Eugene Williams and other true members of the church, the only persons who can authorize a sale have objected to any such transaction. [Williams has notified the person he has been told may be listing the property.](Screenshots/Bradford-Objection.png)
+
+Ignore the following: its to address case-sensitivity. MOUNT CALVARY mount calvary Mount The following for Mount when abbreviated: MT mt Mt
