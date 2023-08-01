@@ -2,6 +2,8 @@
 ## About This Repository
 A document repository for the largest and ongoing massacre in US history that occurred at Mount Calvary Baptist Church in Lexington, KY.
 
+The README.md is brief summary of events. Everyone should click the links within. One cannot begin to see the truth until they do. We apologize in advance for anything you read that offends you, we didnt write it, they did. 
+
 It contains correspondence and other items related to the massacre and subsequent coverup by the CIA and US government.
 
 Please clone this repository often so that this cannot be covered up and the original Mount Calvary Baptist Church and its members are not forgotten.  If you have any comments, questions or suggestions pertaining to this README please add them to this [etherpad](https://pad.riseup.net/p/MCBCMassacre-keep) or create an issue.
