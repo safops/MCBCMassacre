@@ -4,7 +4,7 @@ A document repository for the largest and ongoing massacre in US history that oc
 
 It contains correspondence and other items related to the massacre and subsequent coverup by the CIA and US government.
 
-Please clone this repository often so that this cannot be covered up and the original Mount Calvary Baptist Church and its members are not forgotten.  If you have any comments, questions or suggestions pertaining to this README please add them to this [etherpad](https://pad.riseup.net/p/MCBCMassacre-keep) or create an issue.  
+Please clone this repository often so that this cannot be covered up and the original Mount Calvary Baptist Church and its members are not forgotten.  If you have any comments, questions or suggestions pertaining to this README please add them to this [etherpad](https://pad.riseup.net/p/MCBCMassacre-keep) or create an issue.
 
 ## UPDATE
 Just moments ago I made a PDF from a, I guess, Apple proprietary HEIC format of a Cease and Desist that you needed to know about. Literally a few seconds after the commit updating the read me I received a knock at the door, and the officer handed me this [order of protection](Correspondence/20230731-ReceivedOOP.pdf). If I had a social media account that wasnt censored already, Id use more colorful language. 
@@ -66,3 +66,6 @@ Williams believes the closest neighbors were likely killed.  The area around the
 # Our Social Media
 
 Due to cover-up, censorhip, or unauthorized access to devices by CIA or NSA personnel our social media activties have temporarily stopped.  We have replaced Twitter (@ASOTC23, @kelvinewilliams, @kelvinatlanta) and Facebook (kelvinewilliams - was compromised, kelvineugenewilliams was BANNED shortly after creating the new account) with [this simple log](/social_media_replacement.md).  We hope to be on some social network soon.
+
+# Re: Title Searches
+If anyone is looking at purchasing property at or adjacent to Mount Calvary Baptist Church at 4742 Todds Rd, Lexington, KY 40509 should know that Kelvin Eugene Williams and other true members of the church, the only persons who can authorize a sale have objected to any such transaction. [Williams has notified the person he has been told may be listing the property.](Screenshots/Bradford-Objection.png)
