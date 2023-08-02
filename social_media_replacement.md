@@ -1,5 +1,13 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-02 14:45:00 EDT >>
+
+CORRECTION: Her name is Bonnie Bush Ford. Yes, a cousin to POTUSes George W. Bush and George H.W. Bush. 
+
+"The canyon did flood with water and blood." - Vandaveer / Mighty Leviathan of Old. I'll post song meanings later. Typing on my iPhone as computer is infected again. 
+
+<<EOM
+
 2023-08-02 14:38:00 EDT >>
 
 I'm horrified that the CIA has harmed another church. Hickory Valley Christian church's pastor is also the principal/administrator of Hamilton Heights Christian Academy both in Chattanooga. I was introduced to Duke by Bonnie Bueh Ford ot Wildwood, GA a very good friend of mine. Bonnie is now missing, and Ive received some artwork depicting her demise. The CIA loves this artwork and "hotels" (see about them at @ASOTC23 on Twitter). One of the CIA personnel around me just showed me a trouble ticket he was opening at Cash App. The name DW Stone and CashTag $song504 was on it. Thats Duke's. He's not answering the phone. 
