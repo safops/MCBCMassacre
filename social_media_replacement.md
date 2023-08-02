@@ -1,5 +1,15 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-02 14:38:00 EDT >>
+
+I'm horrified that the CIA has harmed another church. Hickory Valley Christian church's pastor is also the principal/administrator of Hamilton Heights Christian Academy both in Chattanooga. I was introduced to Duke by Bonnie Bueh Ford ot Wildwood, GA a very good friend of mine. Bonnie is now missing, and Ive received some artwork depicting her demise. The CIA loves this artwork and "hotels" (see about them at @ASOTC23 on Twitter). One of the CIA personnel around me just showed me a trouble ticket he was opening at Cash App. The name DW Stone and CashTag $song504 was on it. Thats Duke's. He's not answering the phone. 
+
+The CIA knows of my involvement at HHCA. I helped the students build their new conputer lab. I don't know if anyone else has been harmed so I make this post, like I do for musical artists when I listen to them in my apartment. I just wish I had for Tina Turner, she died suddenly after I liatened to Proud Mary. Their problem is with Vandaveer (Mark was my best friend) and Prince (was a cousin), so everyone I listen to, they think knows and is writing about this. 
+
+https://facebook.com/kelvineugenewilliams has a list of my work and residences. But shortly after making a Reel warning others my old account (kelvinewilliams) was hijacked I was BANNED by Facebook for 180 days. 
+
+<<EOM
+
 2023-08-02 13:15:00 EDT >>
 
 Gonna switch it up a bit. Some geeks somewhere have suggested just using the commit messages for these updates. changelogs and stuff. 
