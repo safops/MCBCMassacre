@@ -1,5 +1,11 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-02 13:15:00 EDT >>
+
+Gonna switch it up a bit. Some geeks somewhere have suggested just using the commit messages for these updates. changelogs and stuff. 
+
+<<EOM
+
 2023-08-02 13:05:00 EDT >>
 
 First, I would like to thank GitHub.com for making Git easy for everyone to see changes as they are made and the bandwidth they share with everyone without money. Your platform is about to be more famous, more than us geeks would have ever made it, a true household name. 
