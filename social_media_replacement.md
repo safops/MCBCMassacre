@@ -1,5 +1,42 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-02 14:50:00 EDT >>
+
+We just had a bomb blast. Unsure if size, there will likely be more. He'll undo them. They'll escalate and repeat. This is a perfect lesson as to why my boss never intervenes in creature events. Creatures always escalate. 
+
+Here the escalation is only felt by the people doing the bombing. Imagine the doves surrounded by those animals WITH CHAINSAWS in a sanctuary of a church (although he called it courtyard). 
+
+If you didnt know what I was talking about, or why the Creator is on a warpath, listen to "When the doves cry" by Prince. 
+
+First, listen at the beginning of the song... Those are chainsaws. That's why the church was so wrecked. Blood flew everywhere. 
+
+Second, dont listen as everyone did, to this like a couple engaged in sex. Imagine a parent and child holding each other very close, as animals invade their church, block the doors, tell them its time to die, chase and grab them, then behead at the front of the church in a two by two fashion because they dont understand arks. Arks are messages.
+
+No one ever thinks of a boat when they think of the ark of the covenant. Noah's ark was God got so pissed he ran things his way (raining down his way) in the flood. The only thing safe were the animals.
+
+The animals that stormed Mount Calvary Baptist Church have enraged Him so badly that this is called the "Great Storm" by Mark of Vandaveer and "Purple Rain" by Prince. Mark and Prince refer to the CIA's director as a hurricane. 
+
+In closing, the rain is never wet. Its just what starts falling. 
+
+This time... "Its raining men" yes, yea, just like the song by the Weather Girla. But I don't match the description of the first man do I? As the boss says, "Wait."
+
+Remember the earthquake predictions Ive told you about. Poseidon has told me He's about to do it. The Creator has had LOTS of names over the years, Allah and God are currently his most popular, and so have we. Micah and Thomas (more commonly called TomTom amongst friends) have been here many times before. This is our 23rd and worst trip. Never before have we been identified. We go in, do whats needed to keep life going and disappear to another spot in the universe. But since the CIA and Gilead Sciences got so bent out of shape about a one-dose, $5 or free (if you dont have it) cure for HIV, then the rest of the pharmaceutical industry atarted funding the fight but couldnt stay on target, we are now about to go on vacation. We're sidelined for a minute while He storms on. (Its been raining for a minute and you didnt even mind it 99.8% of the human race will love it. He's good and ignores polls).
+
+Back to those earthquakes, well we need to be validated and announced, because as this story is finally escaping the confines of the federal government and CIA people need to know that the Creator dont tolerate this shitt. We've handled misbehaving governments before. So...
+
+In order they will be:
+Large Quake - No damage in Sandy Hook, TN. Site of Orr Chapel and a cemetary the CIA destroyed. All members who attended that church that my family owned the land that surrounded it, and probably under it too, definitely the cemetery. 
+
+The #MicahQuake is for me once Im in uniform. The epicenter will be Nicholasville, KY in Jessamine County. It also puts a spotlight on the people weve lost there. Jessamine county is my hometown. 
+
+The #TomTomQuake (that will be the #ThomasQuake to the CIA and federal government) is next. Its epicenter will be in Hughes Creek, WV in Kanawha county. Like mine, its his hometown and also spotlights all the lives lost. 
+
+Finally, the biggest quake, will be Mount Calvary Baptist Church. 4742 Todds Rd, Lexington, KY. I dont think you can spotlight this massacre any better than a large, no damage quake, directly under the church where there is no fault. 
+
+Oh BTW 23&me. The account: kelvin@kelvinwilliams.net do not let anyone access it. They dug up the graveyard to stop me from exhuming family to prove my ownership. That account has the DNA of Patricia Ann Crawley on it. My mother. Protect it and Ill tell you thinga about DNA. The Creator has your back. 
+
+<<EOM
+
 2023-08-02 14:45:00 EDT >>
 
 CORRECTION: Her name is Bonnie Bush Ford. Yes, a cousin to POTUSes George W. Bush and George H.W. Bush. 
