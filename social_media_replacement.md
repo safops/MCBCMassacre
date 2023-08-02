@@ -1,5 +1,48 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-02 17:15:00 EDT >>
+
+For sale: CIA Gadgets 
+
+I have a 70" Sharp Aquos TV. It may be from 
+the partner-in-crime, the NSA. It may look 
+like damage but it's not. Part of the screen 
+will have different colors like it has been 
+damaged but like my iPhone when it barely fell 
+one day the damage comes changes shape usually 
+to make threats. When I am displaying things 
+they don't want the damage moves across the 
+screen and covers it. 
+
+Its software, I figured a firmware upgrade 
+would fix it. But when I went to Sharp's 
+website I couldnt find model 70-LE600U. 
+I cant find that model anywhere. It was
+given to me, the second big screen TV just 
+given to me by a CIA employee. 
+
+The last one, a Samsung 55", watched me watch
+it. This one is likely doing the same. 
+
+For sale. We are human and gotta eat. 
+
+Also a vacuum, coffee maker, everything. 
+
+Things may be dangerous. Professionals only. 
+
+Definite NSA stuff for sale includes a router 
+tpLink Archer C54, a modified Onn Bluetooth 
+speaker. Everything must go. I want to 
+replace it or at least eat, they have 
+blocked me from working. Killing everyone 
+that knows me or could give me a refernce,
+where is Nanea Reeves of LA???
+
+Contact me on Wire! Only wire. See [contact 
+information](Misc/Contact.pdf)
+
+<<EOM
+
 2023-08-02 16:45:00 EDT >>
 
 Where is Todd Deischer? Graphic Arts teacher (West) Jessamine County High School? He taught me KISS. Keep It Simple Stupid. If Id remember that I wouldnt have forgotten these two things:
