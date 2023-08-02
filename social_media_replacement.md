@@ -1,5 +1,15 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-02 16:45:00 EDT >>
+
+Where is Todd Deischer? Graphic Arts teacher (West) Jessamine County High School? He taught me KISS. Keep It Simple Stupid. If Id remember that I wouldnt have forgotten these two things:
+
+1. The press conference will be on Alphabet street. See the previous upsate for the location. It will be at high noon on the day following the quakeb epicentered in Sandy Hook, some may call it Mount Pleasant, TN.
+
+2. The thunderbird if you didnt get is a Phenix. The white rad ride youll understand more after our photosbor video of us is public.
+
+<<EOM
+
 2023-08-02 16:43:00 EDT >>
 
 PRESS CONFERENCE DETAILS HEREIN. But first from a member of that Rogers family, like you know, the Rogers on West Sheepneck Road in Sandy Hook, TN that all left. Sandy Hook is an unincorporated city that is really farm, at one time an orchard too. For services we rely on Mount Pleasant. 
