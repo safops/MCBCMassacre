@@ -1,5 +1,38 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-02 16:43:00 EDT >>
+
+PRESS CONFERENCE DETAILS HEREIN. But first from a member of that Rogers family, like you know, the Rogers on West Sheepneck Road in Sandy Hook, TN that all left. Sandy Hook is an unincorporated city that is really farm, at one time an orchard too. For services we rely on Mount Pleasant. 
+
+Prince wrote a song called "Alphabet Street." Alphabet Street is really the graveyard on West Sheepneck Rd. My family WAS mostly interred there. I need to visit there because in one satellite image it was drastically different, very orderly, uniform even. Not the place where my mother told me I was to bury her. I was told by the Creator they dug it up. They evem projected my grandmothers face on the wall from her casket, she was burried over thirty years ago. 
+
+Side note and #INB4 her last name was Crawley, Im also giving away the answer to a family trivia question I use to verify family. The Crawleys lives on Crawley hill in Sandy Hook. The Rogers on West Sheepneck Road. Lila Elizabeth Crawley Richardson was my grandmother and never married to my grandfather mame withheld. She was the biggest drama in the family in a while! Because at the cemetery your plot is decided by the date of your demise. Period. 
+
+My grandmother and grandfather were side by side. My grandfathers wife tolerated his rolling stone ways in life, but he preceded her in death and my grandmother was buried next. It made it convenient for my mother to visit her parents. Patricia Ann Crawley Williams and her hatchlings, Katrina "half-assed" Renee Duvall and myself (Kelvin soon to be only known as Micah) would be the only people per probate law to own Sandy Hook. 
+
+Half-assed is a term my mother used a lor when something was being done incomplete or juat dead wrong. My sister is the reason. On January 6th, 1983 she wanted out. My mom was in the delivery room and the doctor took one look and screamed for my mother to not push as he only saw half of Katrina's ass in the birth canal. So my mom from that day forward called things done wrong half assed. Katrina went on to become a probation officer in the state of Alabama. 
+
+I bring up half assed because Im being told and censored about the graveyard details because they are trying to replace it now. But they will do it half assed. First no bodies and my family preferred burials (not all were there some were public some national cemeteries). Second the half assed engraving on headstones. Misspelled words, names and nicknames.  The family knew who was there and what it was supposed to say or who Aint was. That is an aunt to us. 
+
+So Ive got to go down to Alphabet Street to look for all the stuff I know will be there. If necesary I can go down down down cause thats the only way, to make this cruel cruel word here what we got to say. 
+
+I know a few things about DNA. I know my grandmother's matches my mom's exactly. I know where she's buried. I know from thenback corner of the church the approximate number of steps to the footnof her grave. So I know she can be exhumed with care and replaced after her tissuenis extracted for a DNA test. If I dont find her... We got a big problem. 
+
+We already do.  He already told me so. 
+
+Oh and the first girl Im gonna meet??? Thats TomTom. Dont get hung up on sexes and referring to someone in the wrong sex. 
+
+That thunderbird. Dont think Ford Thunderbirds like my Aint Emma Jean Dale loved to drive. Think,it's a great storm, with Purple Rain (that really happened--well the sky was purple when the storm rolled in. See the Twitter), and remember Im not in my work uniform. I tried it. 
+
+In one of these posts, Ill get into why we dont have a main branch or why Main streets may be renamed to Subby or something else or why Georgetown, SC may have been ahead of the curve. 
+
+To my Marilyns out there, named after Marilyn Altman a good friend until they killed her and State Regent of the Daughters of the American Revolution. Her and her husband, Lenair had funerals a one right after the other. COVID-19 for him, caught in his yard alone, he loved doing yard work. She was killed by another injection at the hospital when she was son upset. I said another injection because COVID-19, the one that kills, only happens after an injection. Thats somethint you can #PrayToVerify and then youll see why he put us on vacation so he can storm these intelligence COMPANIES out of his universe. But to my Marilyns, get ready, this revolution WILL be televised, its about to begin. 
+
+<<EOM
+
+<<EOM
+
+
 2023-08-02 14:50:00 EDT >>
 
 We just had a bomb blast. Unsure if size, there will likely be more. He'll undo them. They'll escalate and repeat. This is a perfect lesson as to why my boss never intervenes in creature events. Creatures always escalate. 
