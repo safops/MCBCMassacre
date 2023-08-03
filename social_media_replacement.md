@@ -1,5 +1,18 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-02 20:15:00 EDT >>
+
+I need some humans who don't mind volunteering to help me help them. Some of these jobs may become 
+
+1. I need someone who is very good at writing to help me rewrite the primary README.md. Location: Anywhere with Internet. Experience with Git would be nice.
+2. Someone to check what I send out. They utilize a cell on wheels here so I cant trust if Im on the real net or not, or if real Internet and Im suppressed
+3. I need someone or a group of people to help me. Im unable to work, people who've interviewed me and wanted to hire me have been killed. Like: Genesys (for am OpenSIPS position) and FluentStream (for a voice engineer position). Former companies like: textPlus, VoApps, Basecamp, Farmwave, Southern Coastal Cable (Georgetown, SC) have had everyone that knew me go missing. So its hard to find employment unless someone wants to hire me without a reference. If someone could make me small donation/loan ANONYMOUSLY Id greatly appreciate it. I'll post a Bitcoin address momentarily. I have the following immediate needs: food, water (its been threatened many times in recent days), power, mobile phone service my Verizon bill is crazy high and shouldnt be and now due within 24 hours. My Boost, read: CIA, line was disconnected recently, they may be trying to steal the number again. 
+4. If anyone has a contact at Apple, I need a iCloud password reset. I have to wait for weeks to use my newer iPhone because of a cute low-tech attack that made my "iPhone unavailable." (intentionally being vague on details). Im trying to get it reset before the last number on my account is disconnected.
+
+Contact me ONLY using Wire. My username is @kelvinlegacy. 
+
+<<EOM
+
 2023-08-02 20:00:00 EDT >>
 
 While on Alphabet Street I'm going to look for several things:
