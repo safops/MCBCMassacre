@@ -1,5 +1,16 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-03 03:44:00 EDT >>
+
+Other music I'm listening to tonight/have listened to in this apartment with ears:
+
+Patti Labelle - Ohhhh Lord & When You've Been Blessed
+Missy Elliott 
+
+This is all because of Tina Turners suprise death just after I used "Proud Mary" to explain the "Great Storm."
+
+<<EOM
+
 2023-08-03 03:22:00 EDT >>
 
 I have been listening to Notorious B.I.G. all day, mainly Mo Money Mo Problema. #SavingInnocentLives (even though the CIA killed Biggie). 
