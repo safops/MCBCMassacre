@@ -1,5 +1,17 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-03 08:56:00 EDT >>
+
+A couple things. 
+
+My favorite "Revenge of the Nerds": THIS ONE! 
+
+Yes GitHub I'm going to switch to commit mesaages only. Just trying to rigure out if I add/remove some whitespace to an empty file for each commit or whut. Someone can pray to Him amd He will tell me whats best. Using my older iPhone until He adjusts the other whitespace (or truly orange space) on Earth. I wish that were now! I got work to do. 
+
+If you hear me on a recording overnight. I loved Bonnie Bush Ford so much, so I loved Duke Stone by default, then grew to love him even more when I worked with their school. Heard unacceptable language for someone working directly for the Creator? We are always born where we are going to do a mission so we know what works the beat. Imagine losing everyone then being surrounded by them (the CIA and government types posing aa friends) and then learning some are robbing your slain friends and family's heirs. Hasnt that COMPANY done enough already to all of us?!?! Its hard to be nice.  Plus I know its to illicit a suicide from me. Bitch please! Never. 
+
+<<EOM
+
 2023-08-03 03:44:00 EDT >>
 
 Other music I'm listening to tonight/have listened to in this apartment with ears:
