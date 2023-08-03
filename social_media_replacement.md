@@ -1,5 +1,21 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-02 20:00:00 EDT >>
+
+While on Alphabet Street I'm going to look for several things:
+
+1. The location of my grandmother's, Lila E. Crawley-Richardson's, grave. 
+2. The location of my grandfather's grave (name intentionally withheld). 
+3. I'm looking for some Sandy Hook English in an inscription on a headstone, it starts with "God." The English is so bad I'm sure the workorder still exists giving the go-ahead to engrave it.
+
+If any two of these are wrong, "we're going down, down, down cause that's the only way to make this cruel, cruel world hear what we got to say." I AM KIN... I can have an exhumation performed. 
+
+Now I hope I've enlightened you to the reciting of the alphabet at the end of Alphabet Street. 
+
+Bonus Round: On some versions of the song you'll hear everyone say, "Kat we need you to rap." That converaation actually happened between my sister Katrina and the one, whose name is generally the same as a Github repo.
+
+<<EOM
+
 2023-08-02 17:15:00 EDT >>
 
 For sale: CIA Gadgets 
