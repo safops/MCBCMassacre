@@ -1,5 +1,13 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-04 03:18:00 EDT >>
+
+The CIA is setting the stage for a setup. They've done it before. Based on what I've heard and corrected around Riverdale (CIAville #4 in the US) they are now floating the idea that something bad happened at Mount Calvary Baptist Church but it was nothing like I've reported it to be. Additionally they've started testing the idea that it was the work result of racists in Kentucky. 
+
+It is as bad as Ive reported it, actually worse. To summarize: The CIA stormed Mount Calvary Baptist Church on Sunday April 2, 2023 killing everyone attending the morning service. The church has been used repeatedly to kill others visiting the church for Sunday services or fake funerals in an attempt to cover up the initial attack. 
+
+<<EOM
+
 2023-08-03 08:56:00 EDT >>
 
 A couple things. 
