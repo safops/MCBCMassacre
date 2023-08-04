@@ -1,8 +1,11 @@
 # About the Mount Calvary Baptist Church Massacre
 ### Another CIA-led act of terror on peaceful people. 
 ## About This Repository
-A document repository for the largest and ongoing massacre in US history that occurred at Mount Calvary Baptist Church in Lexington, KY.  Dont let this be covered up, please clone this repository and pull often.  For non-Git nerds, visit Github repo from a computer and click the green Code button and download Zip--just keep it in a safe space. For non-Git nerds, as often as possible (until I automate it), I will generate a release called daylight--[download the Daylight now!](https://github.com/MCBCMF/MCBCMassacre/archive/refs/tags/Sol.zip)
-My mom used to say, "What is done at night will soon be brought to day." This attack was done shortly after noon but they've kept it hidden, well hidden. Put some daylight on it! The more clones of this repo or copies of Daylight floating around the safer we all become everywhere. 
+A document repository for the largest and ongoing massacre in US history that occurred at Mount Calvary Baptist Church in Lexington, KY.  
+
+Dont let this be covered up, please clone this repository and pull often.  For non-Git nerds: There is the Daylight download. It contains everything here in a single zip file.  [Click here to download the Daylight archive.](https://github.com/MCBCMF/MCBCMassacre/archive/refs/tags/Sol.zip) **Warning:** This repo is under constant attack, especially this file. It is best to clone and pull so that git will warn you of things that have been tampered with. 
+
+My mom used to say, "What is done at night will soon be brought to day." This attack was done shortly after noon but they've kept it hidden, well hidden. The more clones of this repo or copies of Daylight floating around the safer we all become everywhere, even them. They are making people who were involved (either voluntary or involuntary) disappear. Several who I know personally have vanished in the past few days.
 
 The README.md is brief summary of events. Everyone should click the links within. One cannot begin to see the truth until they do. We apologize in advance for anything you read that offends you, we didnt write it, they did. 
 
