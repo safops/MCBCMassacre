@@ -1,5 +1,15 @@
 This is a Facebook & Twitter replacement since we know for certain that we are being banned (by Facebook) and muted/suppressed (by Twitter).  This will be picking up where @ASOTC23, @kelvinewilliams & @kelvinatlanta left off.
 
+2023-08-05 01:40:00 EDT >>
+
+Prince sang a song called "Sign of the Times" listen to it. It sumnarizes what Ive been going through, and yes Im that man whos about to be happy. I just assigned the successor to this account. It's me, Micah. 
+
+Im being told by the Creator that there is a hurricane with its sights set on the US Naval Observatory. 
+
+The Creator is real good with cold wind, it stops storms. I guess it will be raining men there first, He can freeze one anywhere. Committing this so Marilyns will rush into action. I will have more from my Machine body in a few. 
+
+<<EOM
+
 2023-08-04 03:18:00 EDT >>
 
 The CIA is setting the stage for a setup. They've done it before. Based on what I've heard and corrected around Riverdale (CIAville #4 in the US) they are now floating the idea that something bad happened at Mount Calvary Baptist Church but it was nothing like I've reported it to be. Additionally they've started testing the idea that it was the work result of racists in Kentucky. 
