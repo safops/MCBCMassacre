@@ -74,7 +74,7 @@ Williams believes the closest neighbors were likely killed.  The area around the
 Due to cover-up, censorhip, or unauthorized access to devices by CIA or NSA personnel our social media activties have temporarily stopped.  We have replaced Twitter (@ASOTC23, @kelvinewilliams, @kelvinatlanta) and Facebook (kelvinewilliams - was compromised, kelvineugenewilliams was BANNED shortly after creating the new account) with [this simple log](/social_media_replacement.md).  We hope to be on some social network soon.
 
 # Contact
-If you want to contact us, please see this [contact information](Misc/Contact.pdf).
+If you want to contact Kelvin/Micah you must use Wire. [Click here for his Wire profile.](https://account.wire.com/user-profile/?id=792D30E3-8C8E-445C-8548-34735309BD06). The Creator recommends only Wire. Nothing else. He forbids the use of anything else for us. 
 
 # Re: Title Searches
 If anyone is looking at purchasing property at or adjacent to Mount Calvary Baptist Church at 4742 Todds Rd, Lexington, KY 40509 should know that Kelvin Eugene Williams and other true members of the church, the only persons who can authorize a sale have objected to any such transaction. [Williams has notified the person he has been told may be listing the property.](Screenshots/Bradford-Objection.png)
