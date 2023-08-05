@@ -1,17 +1,15 @@
 # About the Mount Calvary Baptist Church Massacre
 ### Another CIA-led act of terror on peaceful people. 
 ## About This Repository
-A document repository for the largest and ongoing massacre in US history that occurred at Mount Calvary Baptist Church in Lexington, KY.  
+A repository for the largest and ongoing massacre in US history that occurred at Mount Calvary Baptist Church in Lexington, KY.  
 
-Dont let this be covered up, please clone this repository and pull often.  For non-Git nerds: There is the Daylight download. It contains everything here in a single zip file.  [Click here to download the Daylight archive.](https://github.com/MCBCMF/MCBCMassacre/archive/refs/tags/0.0.98.zip) **Warning:** This repo is under constant attack, especially this file. It is best to clone and pull so that git will warn you of things that have been tampered with. 
+This repository contains correspondence and other items related to the largest massacre in US history that began one Sunday morning at Mount Calvary Baptist Church located at 4742 Todds Road, Lexington, KY 40509 and continues as of this writing due in large part to the CIA and agencies within government using every tool at their disposal to keep it hidden. 
 
-My mom used to say, "What is done at night will soon be brought to day." This attack was done shortly after noon but they've kept it hidden, well hidden. The more clones of this repo or copies of Daylight floating around the safer we all become everywhere, even them. They are making people who were involved (either voluntary or involuntary) disappear. Several who I know personally have vanished in the past few days.
+As you read this summary you will be horrified and the government knows this. That's why they are doing everything to cover it up. 
 
-The README.md is brief summary of events. Everyone should click the links within. One cannot begin to see the truth until they do. We apologize in advance for anything you read that offends you, we didnt write it, they did. 
+We encourage everyone who reads this to clone (make a complete copy of it) using a local git installation or importing into a private repository using (GitHub, BitBucket, GitLab or other).  Even though we need as much daylight shining on this massacre, we are discontinuing the production of the Daylight release. We know the Daylight archive was modified after we produced it. 
 
-It contains correspondence and other items related to the massacre and subsequent coverup by the CIA and US government.
-
-Please clone this repository often so that this cannot be covered up and the original Mount Calvary Baptist Church and its members are not forgotten.  If you have any comments, questions or suggestions pertaining to this README please add them to this [etherpad](https://pad.riseup.net/p/MCBCMassacre-keep) or create an issue.
+This README.md is brief summary of events. Readers should click the links within to view the supporting information we have. One cannot begin to see the truth until they do.
 
 ## UPDATE
 Just moments ago I made a PDF from a, I guess, Apple proprietary HEIC format of a Cease and Desist that you needed to know about. Literally a few seconds after the commit updating the read me I received a knock at the door, and the officer handed me this [order of protection](Correspondence/20230731-ReceivedOOP.pdf). If I had a social media account that wasnt censored already, Id use more colorful language. 
