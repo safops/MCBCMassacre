@@ -70,8 +70,11 @@ The CIA utilized COWs (Cellular [tower] on Wheels), which are used by mobile net
 Williams believes the closest neighbors were likely killed.  The area around the church is not heavily populated or traveled. [Google Maps](https://goo.gl/maps/7nxmwK1AsSyhDiXB6) of 4742 Todds Road, Lexington, KY.
 
 # Our Social Media
+Starting August 5, 2023 you can get updates by simply reading the commit logs to this repo. They are the most secure outlet we have at the moment. 
 
-Due to cover-up, censorhip, or unauthorized access to devices by CIA or NSA personnel our social media activties have temporarily stopped.  We have replaced Twitter (@ASOTC23, @kelvinewilliams, @kelvinatlanta) and Facebook (kelvinewilliams - was compromised, kelvineugenewilliams was BANNED shortly after creating the new account) with [this simple log](/social_media_replacement.md).  We hope to be on some social network soon.
+We have utilized Twitter in the past, and suggest you read the multiple accounts @ASOTC23, @kelvinewilliams, @kelvinatlanta. Do not trust any Facebook account, they've either been compromised or banned. 
+
+We did utilize [this simple log](/social_media_replacement.md) but have now deprecated its use in favor of the commit logs. 
 
 # Contact
 If you want to contact Kelvin/Micah you must use Wire. [Click here for his Wire profile.](https://account.wire.com/user-profile/?id=792D30E3-8C8E-445C-8548-34735309BD06). The Creator recommends only Wire. Nothing else. He forbids the use of anything else for us. 
