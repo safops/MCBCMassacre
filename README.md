@@ -54,7 +54,7 @@ When the CIA feared that too many people now knew about the chemical cremation a
 
 Practically every missing person in this tragedy has been chemically cremated in their bathtub and bones ground which makes them look like gravel. 
 
-## UPDATE
+## Order of Protection Served
 On Monday July 31, 2023 Williams converted an [image](Correspondence/20230526-CeaseAndDesistToKEW.HEIC) of the [Cease and Desist to PDF format](Correspondence/20230526-CeaseAndDesist.pdf) and [committed](a6d249a945538802e2bc047594025778974e495d) it to the repository.  Moments later, a Clayton County Sheriff’s Deputy knocked on his apartment door and served him with an [Order of Protection](Correspondence/20230731-ReceivedOOP.pdf).  Which alleges Williams was stalking Felix G. Williams. It should be noted that this “court document” bears the name Felix G. Williams instead of Felix G. Williams, III which would be his pastor’s grandfather who is long deceased. 
 
 Williams does not believe the [Petitioner’s Statement](Photos/PetitionersStatement.png)  was written or reviewed by the Rev. Dr. Felix G. Williams, III who has a Doctorate in Divinity as it refers to the baptismal as a *baptism pool.* Williams struggles to think of anyone other than the CIA or it’s hired atheist actors who would refer to a baptismal in this way. 
