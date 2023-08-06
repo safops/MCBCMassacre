@@ -1,7 +1,8 @@
 # About the Mount Calvary Baptist Church Massacre
 ### Another CIA-led act of terror on peaceful people. The same group that brought you 9-11. 
 ## About This Repository
-[Before you submit an issue. Read issue #1.](#1)
+Before you submit an issue. Read issue #1
+
 A repository for the largest and ongoing massacre in US history that occurred at Mount Calvary Baptist Church in Lexington, KY.  
 
 This repository contains correspondence and other items related to the largest massacre in US history that began one Sunday morning at Mount Calvary Baptist Church located at 4742 Todds Road, Lexington, KY 40509 and continues as of this writing due in large part to the CIA and agencies within government using every tool at their disposal to keep it hidden. 
