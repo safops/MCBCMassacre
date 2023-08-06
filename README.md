@@ -15,13 +15,6 @@ This README.md is brief summary of events. Readers should click the links within
 ## URGENT UPDATE/EMERGENCY 
 I AM NOW UNDERSTANDING SOME OF THIS WEEKS EVENTS. I’ll flush this out: c3cb71d4b5a62ce012e023be533a4d941c9532f5
 
-## UPDATE
-Just moments ago I made a PDF from a, I guess, Apple proprietary HEIC format of a Cease and Desist that you needed to know about. Literally a few seconds after the commit updating the read me I received a knock at the door, and the officer handed me this [order of protection](Correspondence/20230731-ReceivedOOP.pdf). If I had a social media account that wasnt censored already, Id use more colorful language. 
-
-Do you know what you get when atheist actors running a church try to stop a family member from raising hell about his murdered loved ones? [Baptism pools](Photos/PetitionersStatement.png) and long deceaeed grandfathers of the victim filing for protective orders. Rev. Dr. Felix G. Williams has a doctorate in Divinity, he would have never signed anything with a "baptism pool" he would have written baptismal if someone else had written it. 
-
-He knows how to baptize too. But I guess [this is how you actually do it in a baptism pool](Photos/Baptism.JPG). New folka in an old church. 
-
 ## About The Massacre
 The CIA stormed Mount Calvary Baptist Church in Lexington on April 2, 2023 after blocking all three exits, diverting calls to 911, and killed everyone inside during the Sunday morning service. The victims were beheaded and their bodies chemically cremated in the baptismal.
 
@@ -29,9 +22,13 @@ The altar, lectern, piano and organ were removed and the choir stands were parti
 
 In early May, Kelvin Williams, was told of the event and proceeded tell others on Twitter.  When he checked verified the address of the church with Google he found his memory off by one and found the denomination and name of his church had changed.  He found a _Mount Calvary **Missionary** Baptist Church_ at an address which would be directly across the street on Facebook.  The address reported according to Apple Maps is the Mount Calvary Baptist Church Cemetery.
 
-Reviewing photos and videos of the _Mount Calvary Missionary Baptist Church_ did in fact show the interior of his Mount Calvary Baptist Church.  The exterior photo on the Facebook page showed Mount Calvary Baptist Church.  Williams and his church were never Missionary Baptist.  Williams thinks the name change is because he works directly for the Creator performing missions and has stated this to the CIA on several occassions.
+Reviewing photos and videos of the _Mount Calvary Missionary Baptist Church_ did in fact show the interior of his Mount Calvary Baptist Church.  The exterior photo on the Facebook page showed Mount Calvary Baptist Church.  
 
-Williams immediately noticed a wrecked church in the videos and did not recognize anyone or any of the practices in the church's services and decided to write a [letter](Correspondence/20230506-LetterToMCBC.pdf) to the church's pastor, Rev. Dr. Felix G. Williams.  Williams received a [response](Correspondence/20230506-ResponseToKEW.pdf) the same day.
+Williams and his church were never Missionary Baptist.  Williams thinks the name change is because he and his partner work directly for the Creator performing “missions” and has stated this around CIA personnel on several occassions.
+
+Williams immediately recognized his church, but also  a wrecked church in the videos and did not recognize anyone or any of the practices in the church's services and decided to write a [letter](Correspondence/20230506-LetterToMCBC.pdf) to the church's pastor, Rev. Dr. Felix G. Williams, III.  
+
+Williams received a [response](Correspondence/20230506-ResponseToKEW.pdf) later the same day.
 
 The _word soup_ in the [response](Correspondence/20230506-ResponseToKEW.pdf) horrified him, the lack of concern by his family member and pastor about the loss of his mother and sister also confirmed it was not his pastor or church that responded.  Williams has stated that Felix Williams (the pastor) would have called or visited immediately, if everything were fine he'd at least suggest psychiatric help as he's done for others in the past. Williams also noted the logo at the top of the response depicted his church, with a choir and the choir stands NOT wrecked as he detailed in his letter.
 
@@ -56,6 +53,13 @@ The swimming pool was never open, but suddenly after Williams started sharing ho
 When the CIA feared that too many people now knew about the chemical cremation any Williams's "Company" provided residence, they began [resurfacing the pool](Photos/LegacyPoolResurfacing.JPG) at the same time they lstarted the [baptisms](Photos/Baptism.JPG) at Mount Calvary Baptist Church.  Williams thinks this may be the "crumbling wall" sung about by Vandaveer.  The now missing and impersonated Mark Charles Heigdinger of Vandaveer is Williams' one-time best friend.  Williams states that the Creator used Vandaveer to help Williams during a rather dark period in his life, Vandaveer's Divide and Conquer album details his Aunt Mary of Sandy Hook, TN, and her life with Annie whom befriended her after her husband died of COVID-19 ("Resurrection Mary"), Mount Calvary Baptist Church and the Kentucky State Police's finding of bones on the church's property and Williams' attempts to ring the fire bell ("A Mighty Leviathan of Old"), and the Creator's opinion of and plan for some of the players in what is definitely no game ("The Sound and the Fury").  The Vandaveer's  "Dig Down Deep" begins the next chapter of Williams' life with his partner--whom the CIA couldn't kill either.
 
 Practically every missing person in this tragedy has been chemically cremated in their bathtub and bones ground which makes them look like gravel. 
+
+## UPDATE
+On Monday July 31, 2023 Williams converted an [image](Correspondence/20230526-CeaseAndDesistToKEW.HEIC) of the [Cease and Desist to PDF format](Correspondence/20230526-CeaseAndDesist.pdf) and [committed](a6d249a945538802e2bc047594025778974e495d) it to the repository.  Moments later, a Clayton County Sheriff’s Deputy knocked on his apartment door and served him with an [Order of Protection](Correspondence/20230731-ReceivedOOP.pdf).  Which alleges Williams was stalking Felix G. Williams. It should be noted that this “court document” bears the name Felix G. Williams instead of Felix G. Williams, III which would be his pastor’s grandfather who is long deceased. 
+
+Williams does not believe the [Petitioner’s Statement](Photos/PetitionersStatement.png)  was written or reviewed by the Rev. Dr. Felix G. Williams, III who has a Doctorate in Divinity as it refers to the baptismal as a *baptism pool.* Williams struggles to think of anyone other than the CIA or it’s hired atheist actors who would refer to a baptismal in this way. 
+
+Further, Williams does not believe Fayette county even has a Sheriff as Lexington-Fayette Urban County Government’s only law enforcement, to his knowledge, is the Lexington (or LFUCG) Police Department. When Williams attempted to obtain his court date he found no court date, an out of character website and smaller than expected court docket, along with only one courtroom. [Screenshots of search](beb25d3c92f10802c34d2a29c8540cfbb5d19818)
 
 ### Frequently Asked Questions (FAQ) about the massacre
 
