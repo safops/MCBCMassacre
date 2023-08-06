@@ -1,7 +1,7 @@
 # About the Mount Calvary Baptist Church Massacre
 ### Another CIA-led act of terror on peaceful people. The same group that brought you 9-11. 
 ## About This Repository
-Before you submit an issue. Read issue #1
+[Before you submit an issue. Read issue #1](https://github.com/MCBCMF/MCBCMassacre/issues/1)
 
 A repository for the largest and ongoing massacre in US history that occurred at Mount Calvary Baptist Church in Lexington, KY.  
 
