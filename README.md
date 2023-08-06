@@ -1,7 +1,8 @@
 # About the Mount Calvary Baptist Church Massacre
 ### Another CIA-led act of terror on peaceful people. The same group that brought you 9-11. 
 ## About This Repository
-[Before you submit an issue. Read issue #1.](#1)
+[Before you submit an issue. Read issue #1](https://github.com/MCBCMF/MCBCMassacre/issues/1)
+
 A repository for the largest and ongoing massacre in US history that occurred at Mount Calvary Baptist Church in Lexington, KY.  
 
 This repository contains correspondence and other items related to the largest massacre in US history that began one Sunday morning at Mount Calvary Baptist Church located at 4742 Todds Road, Lexington, KY 40509 and continues as of this writing due in large part to the CIA and agencies within government using every tool at their disposal to keep it hidden. 
@@ -11,9 +12,6 @@ As you read this summary you will be horrified and the government knows this. Th
 We encourage everyone who reads this to clone (make a complete copy of it) using a local git installation or importing into a private repository using (GitHub, BitBucket, GitLab or other).  Even though we need as much daylight shining on this massacre, we are discontinuing the production of the Daylight release. We know the Daylight archive was modified after we produced it. 
 
 This README.md is brief summary of events. Readers should click the links within to view the supporting information we have. One cannot begin to see the truth until they do.
-
-## URGENT UPDATE/EMERGENCY 
-I AM NOW UNDERSTANDING SOME OF THIS WEEKS EVENTS. I’ll flush this out: c3cb71d4b5a62ce012e023be533a4d941c9532f5
 
 ## About The Massacre
 The CIA stormed Mount Calvary Baptist Church in Lexington on April 2, 2023 after blocking all three exits, diverting calls to 911, and killed everyone inside during the Sunday morning service. The victims were beheaded and their bodies chemically cremated in the baptismal.
