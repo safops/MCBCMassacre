@@ -12,9 +12,6 @@ We encourage everyone who reads this to clone (make a complete copy of it) using
 
 This README.md is brief summary of events. Readers should click the links within to view the supporting information we have. One cannot begin to see the truth until they do.
 
-## URGENT UPDATE/EMERGENCY 
-I AM NOW UNDERSTANDING SOME OF THIS WEEKS EVENTS. I’ll flush this out: c3cb71d4b5a62ce012e023be533a4d941c9532f5
-
 ## About The Massacre
 The CIA stormed Mount Calvary Baptist Church in Lexington on April 2, 2023 after blocking all three exits, diverting calls to 911, and killed everyone inside during the Sunday morning service. The victims were beheaded and their bodies chemically cremated in the baptismal.
 
