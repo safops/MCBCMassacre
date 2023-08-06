@@ -59,6 +59,8 @@ Practically every missing person in this tragedy has been chemically cremated in
 
 ### Frequently Asked Questions (FAQ) about the massacre
 
+How can they kill 150 people in a church? [Hear me answer that for Danny.](Incoming/How150.m4a). You will not believe what happens during this episode—-they are all CIA. Do they sound guilty?
+
 1.  Why did no one escape?
 
 Williams has provided this hand-drawn [floorplan](Diagrams/MCBCFloorplan.JPG) of the church.  During service, people can enter the back of the church through the unlocked exterior doors to the men's and women's lounges without any detection or raising alarm with any congregant as the doors to the sanctuary are closed.
