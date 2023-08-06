@@ -1,5 +1,5 @@
 # About the Mount Calvary Baptist Church Massacre
-### Another CIA-led act of terror on peaceful people. 
+### Another CIA-led act of terror on peaceful people. The same group that brought you 9-11. 
 ## About This Repository
 [Before you submit an issue. Read issue #1.](#1)
 A repository for the largest and ongoing massacre in US history that occurred at Mount Calvary Baptist Church in Lexington, KY.  
@@ -11,6 +11,9 @@ As you read this summary you will be horrified and the government knows this. Th
 We encourage everyone who reads this to clone (make a complete copy of it) using a local git installation or importing into a private repository using (GitHub, BitBucket, GitLab or other).  Even though we need as much daylight shining on this massacre, we are discontinuing the production of the Daylight release. We know the Daylight archive was modified after we produced it. 
 
 This README.md is brief summary of events. Readers should click the links within to view the supporting information we have. One cannot begin to see the truth until they do.
+
+## URGENT UPDATE/EMERGENCY 
+I AM NOW UNDERSTANDING SOME OF THIS WEEKS EVENTS. I’ll flush this out: c3cb71d4b5a62ce012e023be533a4d941c9532f5
 
 ## UPDATE
 Just moments ago I made a PDF from a, I guess, Apple proprietary HEIC format of a Cease and Desist that you needed to know about. Literally a few seconds after the commit updating the read me I received a knock at the door, and the officer handed me this [order of protection](Correspondence/20230731-ReceivedOOP.pdf). If I had a social media account that wasnt censored already, Id use more colorful language. 
