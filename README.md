@@ -75,6 +75,9 @@ The CIA utilized COWs (Cellular [tower] on Wheels), which are used by mobile net
 
 Williams believes the closest neighbors were likely killed.  The area around the church is not heavily populated or traveled. [Google Maps](https://goo.gl/maps/7nxmwK1AsSyhDiXB6) of 4742 Todds Road, Lexington, KY.
 
+# Upcoming
+[The ringing of the bell.](Misc/bell_ringing.md)
+
 # Our Social Media
 Starting August 5, 2023 you can get updates by simply reading the commit logs to this repo. They are the most secure outlet we have at the moment. 
 
