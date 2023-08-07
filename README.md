@@ -75,8 +75,19 @@ The CIA utilized COWs (Cellular [tower] on Wheels), which are used by mobile net
 
 Williams believes the closest neighbors were likely killed.  The area around the church is not heavily populated or traveled. [Google Maps](https://goo.gl/maps/7nxmwK1AsSyhDiXB6) of 4742 Todds Road, Lexington, KY.
 
-# Upcoming
-[The ringing of the bell.](Misc/bell_ringing.md)
+# Why is God, who is the Creator, so angry?
+The CIA stormed Mount Calvary Baptist Church with the sole intent to kill every person already inside attending a church service. Their plan was to behead everyone, in front of the others who were forced to wait to die. They ensured none of their people would get too fatigued by supplying them with chainsaws (listen to the very beginning of [“When the Doves Cry”](https://music.youtube.com/watch?v=FcKE-1NlNlg&feature=share).)
+
+They also guaranteed no interruption from local law enforcement by diverting calls from cell phones to 911 to call takers using mobile phones pretending to be 911 and promising help was on the way. Other calls from people in the area received busy signals or call failed recordings. This was accomplished by the use of COWs (Cells on Wheels, which are mobile cell towers).
+
+The Creator hears every prayer but does not intervene in human activities, this enables you to do whatever you want. When you cannot do something human nature is to escalate their actions until they achieve their desired result. This is one of the reasons He never intervenes. 
+
+That doesn’t mean He doesn’t hear prayers or doesn’t create solutions before the problem exists. This massacre was engineered by the CIA to circumvent every single solution already in place. So the Creator had to listen to prayers from people waiting to die, and He gets infuriated [When the Doves Cry](https://music.youtube.com/watch?v=FcKE-1NlNlg&feature=share).
+
+# What’s He Going to do Now?
+It starts with the [ringing of the bell.](Misc/bell_ringing.md). 
+
+The Creator does not ever want to see death. He understands it happens, accidents always will. But the CIA and others around the world are a leading cause of death in humans. They have to disappear now. 
 
 # Our Social Media
 Starting August 5, 2023 you can get updates by simply reading the commit logs to this repo. They are the most secure outlet we have at the moment. 
