@@ -5,7 +5,7 @@ The Creator is going to “ring the bell” very soon. The exact time is not goi
 ## Orr Chapel Quake
 This earthquake’s epicentre will be located  in Sandy Hook, TN (an unincorporated city near Mount Pleasant) in Maury county. 
 
-This will be a large earthquake for the CIA’s destruction Orr chapel, the murder of it’s members. 
+This will be a large earthquake for the CIA’s destruction of Orr chapel and the murder of it’s members. 
 
 This quake also recognises Micah’s slain family and his family’s graveyard that was destroyed, both by or at the direction of the CIA. 
 
@@ -20,7 +20,7 @@ This earthquake’s epicentre will be in Jessamine county, KY. It will signal wh
 This minor quake will also be to recognise the lives lost in Jessamine county, mostly Micah’s friends, throughout the larger tragedy. 
 
 ## The TomTom Quake
-This earthquake’s epicentre will be in Kanawha county, WV. It will signal when TomTom (to practically everyone TomTom, to others Thomas, born: September 23, 1978) has started his mission for the Creator. This also is TomTom’s 23rd mission on Earth. 
+This earthquake’s epicentre will be in Kanawha county (Hughes Creek), WV. It will signal when TomTom (to practically everyone TomTom, to others Thomas, born: September 23, 1978) has started his mission for the Creator. This also is TomTom’s 23rd mission on Earth. 
 
 This minor quake will also recognise the lives lost in Kanawha county, mostly TomTom’s friends and family, throughout the larger tragedy. 
 
@@ -33,4 +33,4 @@ And so begins the [“Purple Rain”](https://youtube.com/watch?v=S6Y1gohk5-A&fe
 
 He does this because life is supposed to be fun. After all, [“Girls just want to have fun.”](https://youtube.com/watch?v=PIb6AZdTr-A&feature=sharea) We WILL get back to fun in this neighbourhood called Earth. 
 
-Guys, don’t get hung up on “girls” (it does not always mean female).
+Guys, don’t get hung up on the use of  "woman" or “girl" (it does not always mean female).
