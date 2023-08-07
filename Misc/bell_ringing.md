@@ -27,6 +27,8 @@ This minor quake will also recognise the lives lost in Kanawha county, mostly To
 # Aftermath
 The Creator hopes this will be all He has to do to stop the ongoing massacre and end the greater tragedy. 
 
+The tragedy is all a [“Sign of the Times.”](https://youtube.com/watch?v=8EdxM72EZ94&feature=sharea).
+
 And so begins the [“Purple Rain”](https://youtube.com/watch?v=S6Y1gohk5-A&feature=sharea). That means [“It’s raining men.”](https://youtube.com/watch?v=l5aZJBLAu1E&feature=sharea). He has never had to rain down men , although the 23rd mission for both of His servants, they’ve never been identified before. This is just the beginning of the “Great Storm” but it’s the [“Nature of our Kind.”](https://youtube.com/watch?v=lzoABrBtH9A&feature=sharea). 
 
 He does this because life is supposed to be fun. After all, [“Girls just want to have fun.”](https://youtube.com/watch?v=PIb6AZdTr-A&feature=sharea) We WILL get back to fun in this neighbourhood called Earth. 
