@@ -1,5 +1,4 @@
-# About the Mount Calvary Baptist Church Massacre
-### Another CIA-led act of terror on peaceful people. The same group that brought you 9-11. 
+# About the Mount Calvary Baptist Church Massacre 
 ## About This Repository
 [Before you submit an issue. Read issue #1](https://github.com/MCBCMF/MCBCMassacre/issues/1)
 
