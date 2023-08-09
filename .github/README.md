@@ -1,3 +1,8 @@
+# Ringing of the Bell / Earthquakes
+"Conditions on the ground" required Supreme Air Support, not just for His servants but metro Atlanta and internationally too. And my iPhones--theyve called them weapons because of THIS repo. So by the time we got done on the ground, people were mostly asleep on the east coast. 
+
+Expect the quakes on Saturday. Sunday I think is a bad day for press conferences, I know better than trying to block out the Sun. So Monday (or the day after the Sandy Hook quake, never Sunday), high noon, the site of Orr Chapel and West Sheepneck Rd cemwteriea. 
+
 # About the Mount Calvary Baptist Church Massacre
 ### Another CIA-led act of terror on peaceful people. The same group that brought you 9-11. 
 ## About This Repository
@@ -85,11 +90,6 @@ They also guaranteed no interruption from local law enforcement by diverting cal
 The Creator hears every prayer but does not intervene in human activities, this enables you to do whatever you want. When you cannot do something human nature is to escalate their actions until they achieve their desired result. This is one of the reasons He never intervenes. 
 
 That doesn’t mean He doesn’t hear prayers or doesn’t create solutions before the problem exists. This massacre was engineered by the CIA to circumvent every single solution already in place. So the Creator had to listen to prayers from people waiting to die, and He gets infuriated [When the Doves Cry](https://music.youtube.com/watch?v=FcKE-1NlNlg&feature=share).
-
-# What’s He Going to do Now?
-It starts with the [ringing of the bell.](Misc/bell_ringing.md). 
-
-The Creator does not ever want to see death. He understands it happens, accidents always will. But the CIA and others around the world are a leading cause of death in humans. They have to disappear now. 
 
 # Our Social Media
 Starting August 5, 2023 you can get updates by simply reading the commit logs to this repo. They are the most secure outlet we have at the moment. 
