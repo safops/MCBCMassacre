@@ -3,6 +3,9 @@
 
 Expect the quakes on Saturday. Sunday I think is a bad day for press conferences, I know better than trying to block out the Sun. So Monday (or the day after the Sandy Hook quake, never Sunday), high noon, the site of Orr Chapel and West Sheepneck Rd cemwteriea. 
 
+## Media Contact
+Please see our [contact information.](Misc/Contact.pdf) or just see this [Wire profile.](https://account.wire.com/user-profile/?id=1CFBE1AC-E293-40D5-A38F-1E165D3DE50D)
+
 # About the Mount Calvary Baptist Church Massacre
 ### Another CIA-led act of terror on peaceful people. The same group that brought you 9-11. 
 ## About This Repository
