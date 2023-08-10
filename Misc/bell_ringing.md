@@ -1,4 +1,4 @@
-# The Ringing of the Bell
+# The Ringing of the Bell 
 
 The Creator is going to “ring the bell” very soon. The exact time is not going to be announced, but the order and intensity of the bell ringing (earthquakes) is as follows:
 
