@@ -1,7 +1,9 @@
-# Ringing of the Bell / Earthquakes
-"Conditions on the ground" required Supreme Air Support, not just for His servants but metro Atlanta and internationally too. And my iPhones--theyve called them weapons because of THIS repo. So by the time we got done on the ground, people were mostly asleep on the east coast. 
+# Now part of #Mission23 
+When the bell rings in a moment, Mission 23 will commence for the servants. 
 
-Expect the quakes on Saturday. Sunday I think is a bad day for press conferences, I know better than trying to block out the Sun. So Monday (or the day after the Sandy Hook quake, never Sunday), high noon, the site of Orr Chapel and West Sheepneck Rd cemwteriea. 
+The safety and security of all persons visiting Mount Calvary Baptist Church and the creation of a memorial for the church and all lost there has been added to the tasks from the Creator for His servants. 
+
+The #Mission23 [wiki and repo](https://github.com/MicahSOTC/Mission23/wiki) is the place to go. 
 
 ## Media Contact
 Please see our [contact information.](Misc/Contact.pdf) or just see this [Wire profile.](https://account.wire.com/user-profile/?id=1CFBE1AC-E293-40D5-A38F-1E165D3DE50D)
