@@ -1,6 +1,7 @@
-Pray. See if you should. The Supreme switchboard operator will control the flow of calls. Go on what you feel after praying about it.
-
-Micah (to the Creator) / Kelvin Williams (by birth)
+# Three things. 
+1. [Hurricane Annie wrote a book](mcbcmassacre_repo_moved_to_sotc.wiki/Incoming/Review-Surprise-Kill-Vanish.pdf)
+2. I SURPRISEd her and them finding that, thet now have everyone trying to KILL me here in Riverdale.
+3. If i VANISH, ive only went to "Alphabet Street" (Orr Chapel/West Sheepneck Cemetery--to do an audit)
 
 # We've moved!
 
