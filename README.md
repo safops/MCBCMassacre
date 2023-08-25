@@ -1,7 +1,11 @@
-# Now part of #Mission23
+# Mount Calvary Baptist Church Memorial Foundation Website
 
-The Mount Calvary Baptist Church Memorial Foundation and all future maintenance of this document repository and its contents have been placed into the hands of the SotC as a task for #Mission23.
+This repository holds what will become the Mount Calvary Baptist Church Memorial Foundation's website.
 
-The SotC were given additional tasks to complete during #Mission23. The Creator has tasked them with ensuring the safety and security of all persons visiting Mount Calvary Baptist Church, and the establishment of a memorial foundation to honor the lives lost at the church and preserve church's property and history.
+The wiki has background information for developers and designers.
 
-There will be no more commits to this repo. See https://github.com/Mission23. 
+In this repository:
+    /assets - All linked items and images.
+    /html - HTML Code
+    /css  - Cascading Style Sheets
+
