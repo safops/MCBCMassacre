@@ -1,7 +1,13 @@
-# Now part of #Mission23
+# MCBCMassacre
+This repository holds all code (html, css and js) and other assets (pdfs, images, audio/video recordings) for the Mount Calvary Baptist Church Memorial Foundation's primary website.
 
-The Mount Calvary Baptist Church Memorial Foundation and all future maintenance of this document repository and its contents have been placed into the hands of the SotC as a task for #Mission23.
+The purpose of the site, like the foundation, is to honor the lives lost during the massacre, preserve the church's property and share its history so that this massacre shall not be forgotten nor repeated. 
 
-The SotC were given additional tasks to complete during #Mission23. The Creator has tasked them with ensuring the safety and security of all persons visiting Mount Calvary Baptist Church, and the establishment of a memorial foundation to honor the lives lost at the church and preserve church's property and history.
+The site will also serve as clearinghouse for information on this event. 
 
-There will be no more commits to this repo. See https://github.com/Mission23. 
+## Repository contents:
+     /assets - Non HTML entities (pdfs, images, audio/video recordings)
+     /site - HTML and other code for site design
+     ../js - javascript
+     ../css - Cascading Style Sheets
+     ../html - HTML documents
