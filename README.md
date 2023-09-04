@@ -14,6 +14,8 @@ Do not trust any other fork or repo pertaining to Mount Calvary Baptist Church i
 
 If you have content you'd like to submit for inclusion, please fork the Mission23/MCBCMassacre repo and submit a pull request there. All others will be ignored. 
 
+We recommend anonymity. Create an account just for your fork and pull request. See the wiki for more on Mission23/MCBCMassacre. 
+
 ## Repository contents:
      /assets - Non HTML entities (pdfs, images, audio/video recordings)
      /site - HTML and other code for site design
