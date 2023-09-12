@@ -8,7 +8,7 @@ The site will also serve as clearinghouse for information on this event.
 ## Authorized forks:
 Active development is occuring in a fork, this repository is updated by pull requests infrequently. Please visit [the only authorized fork](https://github.com/Mission23/MCBCMassacre)  for the most current repo. This is a "vault" per se. 
 
-[https://github.com/Mission23/MCBCMassacre](https://github.com/Mission23/MCBCMassacre)
+[https://github.com/Mission23/MCBCMassacre](https://github.com/Mission23/MCBCMassacre).  
 
 Do not trust any other fork or repo pertaining to Mount Calvary Baptist Church in Lexington, KY. #PrayToVerify
 
