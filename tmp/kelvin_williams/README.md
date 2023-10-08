@@ -5,7 +5,7 @@ Anyone looking into Mount Calvary Baptist Church should know this Kelvin William
 
 You can always validate this Kelvin Williams by:
       - Verifying the image in this directory; AND
-      - Verifying his ability to write to the MCBCMF/MCBCMassacre repo on github.
+      - Verifying his ability to write to the MCBCMF/MCBCMassacre repo on github WITH SIGNED COMMITS. 
 
 DO NOT TRUST ANY GOVERNMENT ISSUED ID, BIRTH CERTIFICATE, SOCIAL MEDIA, WEBSITE OR SIMILARLY NAMED REPOSITORY.
 
