@@ -1,3 +1,8 @@
+# Latest updates...
+Follow the commits for the latest... We've switched back to the vault at the Creator's instructions. Watch these commits for all the developing information. And its developing rapidly!
+
+![IMG_0134](https://github.com/MCBCMF/MCBCMassacre/assets/140292625/6d472f59-fd94-4ffd-9c98-0890c7c9503d)
+
 # The Ringing of the Bell
 The Creator is going to “ring the bell” very soon. The exact time is not going to be announced.  Scientists have often said that a very strong earthquake will ring Earth like a bell.  These earthquakes are intended to _shine a light_ on a horrible, unnecessary tragedy that culminated with a [massacre of a church’s congregation](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church) during the height of their worship hour.  
 
