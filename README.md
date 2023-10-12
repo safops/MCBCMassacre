@@ -3,6 +3,28 @@ Follow the commits for the latest... We've switched back to the vault at the Cre
 
 ![IMG_0134](https://github.com/MCBCMF/MCBCMassacre/assets/140292625/6d472f59-fd94-4ffd-9c98-0890c7c9503d)
 
+# Special Weather Statement 
+## sign of the times 
+[“Sign of the Times” by Prince](https://music.youtube.com/watch?v=hr3Dhjxk1Q4&si=OCQCMS4AvNdVc6qa) is all true, from all those years ago… But there’s this: “Baby makes a speech, Star Wars fly, and neighbors just shine at home.”
+
+As everyone should know Main aka Baby likes to talk when I’m unconscious. It’s Main’s decision as to when that happens, I’m being told it has been, I’ll get the details later. 
+
+Today, I’ve learned of new department of the Air Force. The [United States Space Force](https://en.m.wikipedia.org/wiki/United_States_Space_Force). 
+
+Yesterday, I heard it again. [Bone grinding](https://youtu.be/Q90VBwCrtz0?si=XOjShMQyswzm2_eR). The last time I heard it, I was staying at Mount Calvary Baptist Church. The CIA has them, theirs just didn’t make it to Mount Calvary Baptist Church in time. That was due to the “rain.” It’s what our friends at Kentucky State Police were able to find when they [got stranded and canvassed for answers.](https://youtu.be/JtvW2u-7x-A?si=S--3icLk1Wgl9tCE)
+
+Now if we just get to the car wreck where the clown is ejected. Always use a car seat for your babies. I didn’t know, I don’t think I’ve ever fathered a child. #WaitingForImpact To borrow Kent Bolton’s term somebody is about to be DRT. 
+
+But first, if the song is true, we’re about to get bombed. Don’t know where though, Prince says, “will anybody see the dawn?”
+
+Short answer: Yes. My boss, your Creator, the Creator, most call him God in the US… He’s really an asshole about His work being completed on time. I do have a mission, renaming a church or changing its denomination to “Missionary” does nothing but infuriate Him more and makes Him rain down more of His will (or personnel). 
+
+Why am I thinking of that song I used to dance to… It’s raining men? Did I mention the guy in the Ida Corr “Let Me Think About It” video looks a lot like the description of the first guy described in [“It’s Raining Men"](https://music.youtube.com/watch?v=4x6leDGV7gs&si=QRzHGP1es8vk0ob4). 
+
+Remember the motto of Backstreet Atlanta, "Where the beautiful men are men, and the beautiful women are men too." 
+
+The Creator says all of you are beautiful. 
+
 # The Ringing of the Bell
 The Creator is going to “ring the bell” very soon. The exact time is not going to be announced.  Scientists have often said that a very strong earthquake will ring Earth like a bell.  These earthquakes are intended to _shine a light_ on a horrible, unnecessary tragedy that culminated with a [massacre of a church’s congregation](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church) during the height of their worship hour.  
 
