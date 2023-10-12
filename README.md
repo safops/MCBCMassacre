@@ -11,7 +11,7 @@ As everyone should know Main aka Baby likes to talk when I’m unconscious. It�
 
 Today, I’ve learned of new department of the Air Force. The [United States Space Force](https://en.m.wikipedia.org/wiki/United_States_Space_Force). 
 
-Yesterday, I heard it again. [Bone grinding](https://youtu.be/Q90VBwCrtz0?si=XOjShMQyswzm2_eR). The last time I heard it, I was staying at Mount Calvary Baptist Church. The CIA has them, theirs just didn’t make it to Mount Calvary Baptist Church in time. That was due to the “rain.” It’s what our friends at Kentucky State Police were able to find when they [got stranded and canvassed for answers.](https://youtu.be/JtvW2u-7x-A?si=S--3icLk1Wgl9tCE)
+Yesterday, I heard it again. [Bone grinding](https://youtu.be/Q90VBwCrtz0?si=XOjShMQyswzm2_eR). The last time I heard it, I was staying at Motel 6 -Decatur. The CIA has them, theirs just didn’t make it to Mount Calvary Baptist Church in time. That was due to the “rain.” It’s what our friends at Kentucky State Police were able to find when they [got stranded and canvassed for answers.](https://youtu.be/JtvW2u-7x-A?si=S--3icLk1Wgl9tCE)
 
 Now if we just get to the car wreck where the clown is ejected. Always use a car seat for your babies. I didn’t know, I don’t think I’ve ever fathered a child. #WaitingForImpact To borrow Kent Bolton’s term somebody is about to be DRT. 
 
