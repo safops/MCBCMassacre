@@ -1,3 +1,10 @@
+# prayer works!
+i need to get somewhere and review all of the files. im getting a divergent branches error when pulling on one of my linux servers. 
+
+so, regardless of the letter, go with the spirit. if any letter in this repo makes it sound like a massacre didnt occur, go to the Spirit in prayer. just ask Him for guidance on what youre reading. then go with what you feel. only He can make you feel. 
+
+oh, and you git nerds out there, im putting everything where you prayed i would long ago, the extended descriptions. i think theyve messed with the head. 
+
 # Latest updates...
 Follow the commits for the latest... We've switched back to the vault at the Creator's instructions. Watch these commits for all the developing information. And its developing rapidly!
 
