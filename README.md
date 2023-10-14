@@ -1,9 +1,39 @@
-# prayer works!
-i need to get somewhere and review all of the files. im getting a divergent branches error when pulling on one of my linux servers. 
+# They Did It!
+They did it. No question. They put the Rev. Dr. Felix G. Williams, III's ecclesiastical ring and items from his office in my face among their gruesome artwork depicting the torture and death of my family and friends.
+
+Psalms 52
+1 Why do you boast of evil, you mighty hero?
+    Why do you boast all day long,
+    you who are a disgrace in the eyes of God?
+2 You who practice deceit,
+    your tongue plots destruction;
+    it is like a sharpened razor.
+3 You love evil rather than good,
+    falsehood rather than speaking the truth.[c]
+4 You love every harmful word,
+    you deceitful tongue!
+5 Surely God will bring you down to everlasting ruin:
+    He will snatch you up and pluck you from your tent;
+    he will uproot you from the land of the living.
+6 The righteous will see and fear;
+    they will laugh at you, saying,
+7 “Here now is the man
+    who did not make God his stronghold
+but trusted in his great wealth
+    and grew strong by destroying others!”
+8 But I am like an olive tree
+    flourishing in the house of God;
+I trust in God’s unfailing love
+    for ever and ever.
+9 For what you have done I will always praise you
+    in the presence of your faithful people.
+And I will hope in your name,
+    for your name is good.
+
+# censored commits
+i have found some commits have been tamoered with in-flight. 
 
 so, regardless of the letter, go with the spirit. if any letter in this repo makes it sound like a massacre didnt occur, go to the Spirit in prayer. just ask Him for guidance on what youre reading. then go with what you feel. only He can make you feel. 
-
-oh, and you git nerds out there, im putting everything where you prayed i would long ago, the extended descriptions. i think theyve messed with the head. 
 
 # Latest updates...
 Follow the commits for the latest... We've switched back to the vault at the Creator's instructions. Watch these commits for all the developing information. And its developing rapidly!
