@@ -1,3 +1,8 @@
+# what are you saying?
+The Creator says now we can have a two way dialog, you can comment on commits and join in the discussions on this repo and the github.com/mission23 org page. 
+
+this is gonna be awesome. 
+
 # They Did It!
 They did it. No question. They put the Rev. Dr. Felix G. Williams, III's ecclesiastical ring and items from his office in my face among their gruesome artwork depicting the torture and death of my family and friends.
 
