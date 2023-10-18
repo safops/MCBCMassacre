@@ -167,7 +167,7 @@ The moniker was applied to the operation after the fact because the congregants 
 
 The church was partially rehabbed and videos were produced to portray a sense of normalcy. Visitors to the church anytime the church has been opened since have been murdered. 
 
-[[https://github.com/Mission23/Mission23/blob/master/assets/mcbc_front.jpg|alt=MCBC]]
+![mcbc_front](https://github.com/mission23/mission23/assets/140252803/f17c1117-1e7d-4069-942b-b87aea287c66)
 
 This screen capture obtained from the Mount Calvary Missionary Baptist Church Facebook page (see warnings above) clearly shows the interior of Mount Calvary Baptist Church and the impersonated Rev. Dr. Felix G. Williams, III wearing no pastoral robe and tennis shoes during a Sunday morning worship session. Micah says, “I spent so much of my youth in this sanctuary, I know that’s my church. The two-way mirrored glass above the lectern tells me it’s my church. That is actually a window in Felix’s office that lets him see if he needs to hurry up or if he has more time to counsel anyone in his office on Sunday mornings.”
 
