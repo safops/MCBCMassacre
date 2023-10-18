@@ -1,9 +1,11 @@
-# what are you saying?
-The Creator says now we can have a two way dialog, you can comment on commits and join in the discussions on this repo and the github.com/mission23 org page. 
+# commits are everything. 
+each file added or changed is done so via a commit. you can view the description of each and comment on them. a github.com account is required. 
 
-this is gonna be awesome. 
+warning: this is still an active situation with the government killing those who are involved or looking into it. 
 
-# They Did It!
+i recommend using a separate anonymized account for commenting right now. -m
+
+# THE CIA DID IT!
 They did it. No question. They put the Rev. Dr. Felix G. Williams, III's ecclesiastical ring and items from his office in my face among their gruesome artwork depicting the torture and death of my family and friends.
 
 Psalms 52
