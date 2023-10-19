@@ -51,7 +51,7 @@ It also signals the start of #mission23, and says "Thanks" to everyone who has t
 The order and intensity of the bell ringing (earthquakes) goes as follows:
 
 ## Orr Chapel Quake
-This earthquake’s epicentre will be located  in Sandy Hook, TN (the former unincorporated city near, now neighborhood of Mount Pleasant) in Maury county. The Rogers family farm. 
+This earthquake’s epicentre will be located  in Sandy Hook, TN (the former unincorporated city near, now neighborhood of Mount Pleasant) in Maury county. The Rogers & Crawley families farms. 
 
 This will be a large earthquake for the CIA’s destruction of Orr Chapel ([Google Maps](https://goo.gl/maps/XMMdNdpGjU3SMMKQ8)) and the murder of all of it’s identified members. 
 
@@ -80,10 +80,12 @@ At high noon the day immediately following the shaking under our feet the SotC w
 ## Mount Calvary Baptist Church 
 On the second day following the shaking, the SotC will be at Mount Calvary Baptist Church at 4742 Todds Road in Lexington, KY at high noon. 
 
-# Suggested Listening
-## The Sound and the Fury
+## Suggested Listening
+### The Sound and the Fury
 By Vandaveer - [Listen on YouTube Music](https://music.youtube.com/watch?v=OpLeRY6NIhA&si=cmrf2QAr0f544FMZ)
 
-## 1999
+### 1999
 By Prince
 [Listen on YouTube Music](https://music.youtube.com/watch?v=rblt2EtFfC4&si=yghTVWBWzrB5KjD7)
+
+
