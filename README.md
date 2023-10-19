@@ -1,4 +1,4 @@
-# When in doubt, pray  
+# Please Pray
 The following summary is very hard to believe. We ask that any reader who doubts any part of it to pray and ask for guidance. 
 ***
 The following is a very brief summary of The Massacre at Mount Calvary Baptist Church on Todds Road in Lexington, KY. For a more detailed write up an SD the latest details [click here](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church).
