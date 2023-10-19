@@ -24,4 +24,6 @@ No one should call or visit Mount Calvary Baptist Church or a church by any othe
 
 It is recommended that any person who feels the need to report a person missing that was known to be going to a church on Todds Road to delay making the report due a government cover up. The CIA is actively identifying and killing anyone who makes a report of a missing person like the one aforementioned. 
 
+The church will not be having any Sunday worship or Wednesday Bible study services, and no funeral or wedding will be held at the church for the foreseeable future. Anyone at the church prior to the press conference is not authorized to be there and not affiliated with the Mount Calvary that owns the property but the CIA. 
+
 This repository is focused on Mount Calvary Baptist Church on Todds Road in Lexington due to its maintainers long relationship with the church and family relationship with the pastor. Other churches on Todds Road we cannot speak for, but fear they have become part of the massacre turned genocide and cover up by the US government and CIA. 
