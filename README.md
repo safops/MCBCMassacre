@@ -101,7 +101,7 @@ By Prince
 The Creator has tasked His servants with several tasks related to the Massacre at Mount Calvary Baptist Church including the establishment of a memorial foundation. These tasks are now part of the Creator's Mission #23 on Earth. 
 
 ## Big Thanks GitHub!
-To show our appreciation for github.com's support and for them dealing with increasing government pressure for the hosting of this repository, the Creator has instructed His servants, the Servants of the Creator happily agreed to only use github.com for the entirety of the Creator's Mission #23 on Earth.
+To show our appreciation for github.com's support and for them dealing with increasing government pressure for the hosting of this repository, the Creator has instructed His servants, the Servants of the Creator happily agreed to only use github.com (except for audio/video that exceeds 25mb) for the entirety of the Creator's Mission #23 on Earth.
 
 ## Mission Hub
 For more information on anything above please visit our hub at [https://github.com/mission23](https://github.com/mission23). 
