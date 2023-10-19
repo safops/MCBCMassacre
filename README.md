@@ -95,3 +95,13 @@ By Vandaveer - [Listen on YouTube Music](https://music.youtube.com/watch?v=OpLeR
 ## 1999
 By Prince
 [Listen on YouTube Music](https://music.youtube.com/watch?v=rblt2EtFfC4&si=yghTVWBWzrB5KjD7)
+
+***
+# Mission #23
+The Creator has tasked His servants with several tasks related to the Massacre at Mount Calvary Baptist Church including the establishment of a memorial foundation. These tasks are now part of the Creator's Mission #23 on Earth. 
+
+## Big Thanks GitHub!
+To show our appreciation for github.com's support and for them dealing with increasing government pressure for the hosting of this repository, the Creator has instructed His servants, the Servants of the Creator happily agreed to only use github.com for the entirety of the Creator's Mission #23 on Earth.
+
+## Mission Hub
+For more information on anything above please visit our hub at [https://github.com/mission23](https://github.com/mission23). 
