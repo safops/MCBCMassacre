@@ -1,7 +1,7 @@
 # When in doubt, pray  
 The following summary is very hard to believe. We ask that any reader who doubts any part of it to pray and ask for guidance. 
 ***
-The following is a very brief summary of The Massacre at Mount Calvary Baptist Church on Todds Road in Lexington, KY. For a more detailed write up [click here](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church).
+The following is a very brief summary of The Massacre at Mount Calvary Baptist Church on Todds Road in Lexington, KY. For a more detailed write up an SD the latest details [click here](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church).
 ***
 On Sunday April 2nd, 2023 a CIA team led by Annie Jacobsen stormed Mount Calvary Baptist Church in Lexington, Kentucky near the end of the morning worship services. 
 
@@ -27,3 +27,12 @@ It is recommended that any person who feels the need to report a person missing 
 The church will not be having any Sunday worship or Wednesday Bible study services, and no funeral or wedding will be held at the church for the foreseeable future. Anyone at the church prior to the press conference is not authorized to be there and not affiliated with the Mount Calvary that owns the property but the CIA. 
 
 This repository is focused on Mount Calvary Baptist Church on Todds Road in Lexington due to its maintainers long relationship with the church and family relationship with the pastor. Other churches on Todds Road we cannot speak for, but fear they have become part of the massacre turned genocide and cover up by the US government and CIA. 
+
+This repository was setup in a way that it could not be deleted, due to the way the MCBCMF account was created and secured it is now impossible for us to update the topmost description.  The massacre and other related church tasks have been adopted by [mission23](https://github.com/mission23), please go there for the latest. However we encourage everyone to clone and fetch/pull often. The more copies of this repo there are the harder it is for the government to keep this quiet. 
+
+God bless and please keep Mount Calvary Baptist Church in your prayers. 
+***
+## Did you know?
+Prince's hit song "When the Doves Cry" is about the massacre's initial attack. 
+
+When listening don't think of anyone but a mother holding and talking to her child, and the prayers going up as animals chased those running for their lives inside the church. 
