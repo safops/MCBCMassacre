@@ -35,4 +35,4 @@ God bless and please keep Mount Calvary Baptist Church in your prayers.
 ## Did you know?
 Prince's hit song "When the Doves Cry" is about the massacre's initial attack. 
 
-When listening don't think of anyone but a mother holding and talking to her child, and the prayers going up as animals chased those running for their lives inside the church. 
+When listening don't think of anyone but a mother holding and talking to her child, and the prayers of worshippers  going up as people acting as animals chased those running for their lives inside the church. 
