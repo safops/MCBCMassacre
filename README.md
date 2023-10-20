@@ -102,7 +102,7 @@ By Prince
 ### Facts about 1999
 * It's NOT about a year. 
 * It IS about the number of victims.
-     - See wiki article about ongoing activities. 
+     - See [this wiki article](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church) about ongoing activities. 
 
 ***
 # Mission #23
