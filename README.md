@@ -91,10 +91,18 @@ Regardless of shaking, there will be no destruction or injury.
 # Suggested Listening
 ## The Sound and the Fury
 By Vandaveer - [Listen on YouTube Music](https://music.youtube.com/watch?v=OpLeRY6NIhA&si=cmrf2QAr0f544FMZ)
+### Facts about The Sound and the Fury
+* That is your Creator, the Creator speaking.
+   - First to Main (the "2-4" in "When the Doves Cry"
+   - Then to the CIA
 
 ## 1999
 By Prince
 [Listen on YouTube Music](https://music.youtube.com/watch?v=rblt2EtFfC4&si=yghTVWBWzrB5KjD7)
+### Facts about 1999
+* It's NOT about a year. 
+* It IS about the number of victims.
+     - See wiki article about ongoing activities. 
 
 ***
 # Mission #23
