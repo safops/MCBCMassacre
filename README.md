@@ -1,7 +1,7 @@
 # The Massacre at Mount Calvary Baptist Church
 The following summary is very hard to believe. We ask that any reader who doubts any part of it to pray and ask for guidance. 
 ***
-The following is a very brief summary of The Massacre at Mount Calvary Baptist Church on Todds Road in Lexington, KY. For a more detailed write up an SD the latest details [click here](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church).
+The following is a very brief summary of The Massacre at Mount Calvary Baptist Church on Todds Road in Lexington, KY. For a more detailed write up and the latest details [click here](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church).
 ***
 On Sunday April 2nd, 2023 a CIA team led by Annie Jacobsen stormed Mount Calvary Baptist Church in Lexington, Kentucky near the end of the morning worship services. 
 
