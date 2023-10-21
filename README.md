@@ -115,7 +115,7 @@ To show our appreciation for github.com's support and for them dealing with incr
 For more information on anything above please visit our hub at [https://github.com/mission23](https://github.com/mission23). 
 
 # Re: Title Searches
-If anyone is looking at purchasing property at or adjacent to Mount Calvary Baptist Church at 4742 Todds Rd, Lexington, KY 40509 should know that Kelvin Eugene Williams and other true members of the church, the only persons who can authorize a sale have objected to any such transaction. [Williams has notified the person he has been told may be listing the property.](Screenshots/Bradford-Objection.png)
+If anyone is looking at purchasing property at or adjacent to Mount Calvary Baptist Church at 4742 Todds Rd, Lexington, KY 40509 should know that Kelvin Eugene Williams and other true members of the church, the only persons who can authorize a sale have objected to any such transaction. [Williams has notified the person he has been told may be listing the property.](assets/images/Bradford-Objection.png)
 
 The property across the street at 4743 Todds Road is the Mount Calvary Baptist Church cemetery. 
 
