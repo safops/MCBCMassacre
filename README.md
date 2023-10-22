@@ -121,3 +121,22 @@ The property across the street at 4743 Todds Road is the Mount Calvary Baptist C
 
 Ignore the following: its to address case-sensitivity. MOUNT CALVARY mount calvary Mount The following for Mount when abbreviated: MT mt Mt
 
+# Maintainer & Status
+Kelvin Eugene Williams is an Developer and IP Engineer by day (when the government allows him to work). 
+
+But for nearly six years he has been the target of the CIA, hired in part by Gilead Sciences due to a "miracle cure" of HIV. When the CIA, the military, mercenaries and Annie Jacobsen's rusty guns couldn't kill him, the CIA wiped out his entire family, his friends, then his church family at Mount Calvary Baptist Church. 
+
+Williams is currently on an "suicide watch," neaning Jacobsen, Gilead Sciences and others are watching, waiting, and hoping he will commit suicide soon. 
+
+To hopefully speed things up, they have begun hiring individuals who look similar to his friends and family, having them walk around Atlanta, then he fears, the CIA kills them. 
+
+Williams is all to familiar with the process after learning his own family had been slain. People impersonating family members began stealing his family's land and personal property, and continued to be active enough under his family members' names to make them appear alive. 
+
+Williams discovered his family were truly deceaeed when he asked the woman acting as his mother, "Who is Will Henry?" The name she provided to him when Williams asked her the name of the man he called "granddaddy."
+
+Williams warns people about taking a job or gig for anyone in Atlanta that seems like "modeling" or any job that has you learn his face. 
+
+Part of Williams' suicide watch involves stealing everything he has, and preventing him from working. He lives on a US government kill facility called "Legacy at Riverdale." 
+
+More on the mission23 wiki. 
+
