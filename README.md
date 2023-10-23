@@ -122,7 +122,7 @@ The property across the street at 4743 Todds Road is the Mount Calvary Baptist C
 Ignore the following: its to address case-sensitivity. MOUNT CALVARY mount calvary Mount The following for Mount when abbreviated: MT mt Mt
 
 # Maintainer & Status
-Kelvin Eugene Williams is an Developer and IP Engineer by day (when the government allows him to work). 
+Kelvin Eugene Williams is a Developer and IP Engineer by day (when the government allows him to work). 
 
 But for nearly six years he has been the target of the CIA, hired in part by Gilead Sciences due to a "miracle cure" of HIV. When the CIA, the military, mercenaries and Annie Jacobsen's rusty guns couldn't kill him, the CIA wiped out his entire family, his friends, then his church family at Mount Calvary Baptist Church. 
 
