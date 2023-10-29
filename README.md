@@ -16,7 +16,7 @@ The Rev. Dr. Felix G. Williams, III was tortured extensively by several in the g
 
 The CIA then setup a charade church called Mount Calvary Missionary Baptist Church, Inc. and began producing videos to portray normalcy at the church using actors who resembled pastors and members of the church. The CIA has opened the church week after week in an effort to murder any remaining members or those with a relationship with the church that show up. 
 
-The CIA also began holding funerals to eliminate any in the surrounding communities who expressed interest in those previously killed the church. 
+The CIA also began holding funerals to eliminate any in the surrounding communities who called looking for people who had been previously killed the church. 
 ***
 A more detailed write up of the event and subsequent activities, including things you should do to stay safe can be found on the [mission23 wiki](https://github.com/mission23/mission23/wiki/The-Massacre-at-Mount-Calvary-Baptist-Church).
 ***
