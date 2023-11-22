@@ -1,5 +1,0 @@
-all updates are occurring in the "vault" for reasons unbeknownst to me. the Boss is requiring it. 
-
-the vault is the original and should never be opened per github policy. 
-
-see https://github.com/MCBCMF/MCBCMassacre
