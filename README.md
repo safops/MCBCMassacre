@@ -1,8 +1,3 @@
-# Preventing a Church Attack
-## We Need Your Help
-The Servants of the Creator are working to prevent the genocide ongoing in the United States, with its genesis being the cover-up of Mount Calvary Baptist Church. 
-
-
 # The Massacre at Mount Calvary Baptist Church
 The following summary is very hard to believe. We ask that any reader who doubts any part of it to pray and ask for guidance. 
 ***
