@@ -21,9 +21,9 @@ The CIA also began holding funerals to eliminate any in the surrounding area who
 ### Warning
 No one should call or visit Mount Calvary Baptist Church or a church by any other name on Todds Road until they have seen this coverage on the local and national news channels. 
 
-It is recommended that any person who feels the need to report a person missing that was known to be going to a church on Todds Road to delay making the report due a government cover up. The CIA is actively identifying and killing anyone who makes a report of a missing person like the one aforementioned. 
+It is recommended that any person who feels the need to report a person missing that was known to be going to a church on Todds Road to delay making the report due a government cover up. The CIA is actively identifying and killing anyone who makes a report of a missing person for a person killed at the church or in the coverup. 
 
-The church will not be having any Sunday worship or Wednesday Bible study services, and no funeral or wedding will be held at the church for the foreseeable future. Anyone at the church prior to the press conference is not authorized to be there and not affiliated with the Mount Calvary that owns the property but the CIA. 
+The church will not be having any Sunday worship or Wednesday Bible study services, and no funeral or wedding will be held at the church for the foreseeable future. Anyone at the church prior to the press conference is not authorized to be there and not affiliated with the Mount Calvary that owns the property, but the CIA. 
 
 ## About this Repository 
 This repository is focused on Mount Calvary Baptist Church on Todds Road in Lexington due to its maintainers long relationship with the church and family relationship with the pastor. Other churches on Todds Road we cannot speak for, but fear they have become part of the massacre turned genocide and cover up by the US government and CIA. 
@@ -35,17 +35,17 @@ However we encourage everyone to clone and fetch/pull this repository often. The
 ## About Mission 23
 The Creator’s Mission 23 for Life on Earth was intended, as all previous missions have been, to help life continue on this planet. Objectives for this mission included: eradicating all disease, all cancers, and cardiovascular issues in human beings. 
 
-After Gilead Sciences discovered an HIV+ patient had been cured by a single-dose treatment given to him by a servant of the Creator and his friend to prove its effectiveness, Gilead Sciences paid to have  both killed. 
+After Gilead Sciences discovered an HIV+ patient had been cured by a single-dose treatment given to him by a servant of the Creator and his friend to prove its effectiveness, Gilead Sciences paid (a front company of) the CIA to have both killed. 
 
-The CIA unable to kill the Creator’s servant killed his entire family and practically all of his friends and any associates. 
+The CIA unable to kill the Creator’s servant killed his entire family and practically all of his friends and any associates they identified. 
 
-The Creator’s servant, born Kelvin Eugene Williams, is now the only living member of Mount Calvary Baptist Church of Lexington, Kentucky. 
+The Creator’s servant, born Kelvin Eugene Williams, is now the only living member and interim pastor of Mount Calvary Baptist Church of Lexington, Kentucky. 
 
 ***
 # Ringing of the Bell
 The Creator is going to “ring the bell” very soon. The exact time is not going to be announced.  Scientists have often said that a very strong earthquake will ring Earth like a bell.  These earthquakes are intended to _shine a light_ on a horrible, unnecessary tragedy that culminated with a massacre of a church during the height of their worship hour.  
 
-Regardless of how much work folks have done to get the story out and reported for your safety, the federal government and federal law enforcement agencies are still putting pressure on the Commonwealth of Kentucky's attorney and law enforcement to turn a blind eye and IGNORE the actions of the CIA. The CIA continues to kill in the very place that people go to and expect to be the safest and closest to God, who is none other than, the Creator (our pissed off boss). 
+Regardless of how much work folks have done to get the story out and reported for your safety, the federal government and federal law enforcement agencies are still putting pressure on the Commonwealth of Kentucky's attorney and law enforcement to turn a blind eye and IGNORE the actions of the CIA. The CIA continues to kill in the very place that people go to and expect to be the safest and closest to God, who is none other than, the Creator.  
 
 Obviously drunk on power, the CIA, the federal government and federal law enforcement need to sober up quickly, so the Creator, has decided to ring the bell.  It's a warning that they have forgotten who's universe, Earth, and country this landmass really is.  
 
