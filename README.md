@@ -3,11 +3,12 @@ The following summary is very hard to believe. We ask that any reader who doubts
 ***
 The following is a very brief summary of The Massacre at Mount Calvary Baptist Church on Todds Road in Lexington, KY. For a more detailed write up and the latest details [click here](https://github.com/mission23).
 ***
+## About the Massacre
 On Sunday April 2nd, 2023 a CIA team led by Annie Jacobsen stormed Mount Calvary Baptist Church in Lexington, Kentucky near the end of the morning worship services. 
 
 Prior to entering the church the CIA deployed and activated cellular network equipment which would cause all cell phones in the nearby area to automatically connect to it (a “cell on wheels”). 
 
-After blocking the back two exits, about fifty men and a couple men gathered in the vestibule at the front entrance of the church.  A projection (like a movie) began to show on all of the windows of the sanctuary that made it seem as if escaping through a window would be impossible. The group in the vestibule then burst in announcing it was a law enforcement action. 
+A few men entered the rear of the church and blocked the two rear exits, meanwhile approximately fifty men entered the church through the main entrance. 
 
 With all exits blocked and cellphones unable to call actual 911 due to the setup of the cellular equipment the CIA brought, the invading force began the systematic murder of everyone inside. 
 
@@ -15,8 +16,8 @@ The Rev. Dr. Felix G. Williams, III was tortured extensively by several in the g
 
 The CIA then setup a charade church called Mount Calvary Missionary Baptist Church, Inc. and began producing videos to portray normalcy at the church using actors who resembled pastors and members of the church. The CIA has opened the church week after week in an effort to murder any remaining members or those with a relationship with the church that show up. 
 
-The CIA also began holding funerals to eliminate any in the surrounding communities who called looking for people who had been previously killed the church. 
-***
+The CIA also began holding funerals to eliminate any in the surrounding area who called looking for people who had been previously killed the church. The funerals were held solely to kill any mourners who came. 
+
 ### Warning
 No one should call or visit Mount Calvary Baptist Church or a church by any other name on Todds Road until they have seen this coverage on the local and national news channels. 
 
@@ -24,11 +25,22 @@ It is recommended that any person who feels the need to report a person missing 
 
 The church will not be having any Sunday worship or Wednesday Bible study services, and no funeral or wedding will be held at the church for the foreseeable future. Anyone at the church prior to the press conference is not authorized to be there and not affiliated with the Mount Calvary that owns the property but the CIA. 
 
+## About this Repository 
 This repository is focused on Mount Calvary Baptist Church on Todds Road in Lexington due to its maintainers long relationship with the church and family relationship with the pastor. Other churches on Todds Road we cannot speak for, but fear they have become part of the massacre turned genocide and cover up by the US government and CIA. 
 
-This repository was setup in a way that it could not be deleted, due to the way the MCBCMF account was created and secured it is now impossible for us to update the topmost description.  The massacre and other related church tasks have been adopted by [mission23](https://github.com/mission23), please go there for the latest. However we encourage everyone to clone and fetch/pull often. The more copies of this repo there are the harder it is for the government to keep this quiet. 
+This repository was setup in a way that it could not be deleted, due to the way the MCBCMF account was created and secured it is now impossible for us to update the topmost description.  The massacre and other related church tasks have been adopted by [mission23](https://github.com/mission23), please see the wiki there for the latest information. 
 
-God bless and please keep Mount Calvary Baptist Church in your prayers. 
+However we encourage everyone to clone and fetch/pull this repository often. The more copies of this repo there are the harder it is for the government to keep this quiet. 
+
+## About Mission 23
+The Creator’s Mission 23 for Life on Earth was intended, as all previous missions have been, to help life continue on this planet. Objectives for this mission included: eradicating all disease, all cancers, and cardiovascular issues in human beings. 
+
+After Gilead Sciences discovered an HIV+ patient had been cured by a single-dose treatment given to him by a servant of the Creator and his friend to prove its effectiveness, Gilead Sciences paid to have  both killed. 
+
+The CIA unable to kill the Creator’s servant killed his entire family and practically all of his friends and any associates. 
+
+The Creator’s servant, born Kelvin Eugene Williams, is now the only living member of Mount Calvary Baptist Church of Lexington, Kentucky. 
+
 ***
 # Ringing of the Bell
 The Creator is going to “ring the bell” very soon. The exact time is not going to be announced.  Scientists have often said that a very strong earthquake will ring Earth like a bell.  These earthquakes are intended to _shine a light_ on a horrible, unnecessary tragedy that culminated with a massacre of a church during the height of their worship hour.  
