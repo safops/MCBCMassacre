@@ -1,7 +1,7 @@
 # The Massacre at Mount Calvary Baptist Church
 The following summary is very hard to believe. We ask that any reader who doubts any part of it to pray and ask for guidance. 
 ***
-The following is a very brief summary of The Massacre at Mount Calvary Baptist Church on Todds Road in Lexington, KY. For a more detailed write up and the latest details [click here](https://github.com/mission23).
+The following is a very brief summary of The Massacre at Mount Calvary Baptist Church on Todds Road in Lexington, KY. For a more detailed write up and the latest details [click here](https://github.com/theServants).
 ***
 ## About the Massacre
 On Sunday April 2nd, 2023 a CIA team led by Annie Jacobsen stormed Mount Calvary Baptist Church in Lexington, Kentucky near the end of the morning worship services. 
@@ -66,7 +66,7 @@ This earthquake’s epicentre will be located at Mount Calvary Baptist Church in
 
 This will be the largest quake for the massacre that occurred there.
 
-See: [The Massacre at Mount Calvary Baptist Church](https://github.com/mission23)
+See: [The Massacre at Mount Calvary Baptist Church](https://github.com/theServants)
 
 ## The Micah Quake 
 This earthquake’s epicentre will be in Jessamine county, KY. It will signal when Micah (born: Kelvin Eugene Williams on March 23, 1977) has started his mission for the Creator. This will be Micah’s 23rd mission on Earth. 
