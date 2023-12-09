@@ -28,12 +28,14 @@ The church will not be having any Sunday worship or Wednesday Bible study servic
 ## About this Repository 
 This repository is focused on Mount Calvary Baptist Church on Todds Road in Lexington due to its maintainers long relationship with the church and family relationship with the pastor. Other churches on Todds Road we cannot speak for, but fear they have become part of the massacre turned genocide and cover up by the US government and CIA. 
 
-This repository was setup in a way that it could not be deleted, due to the way the MCBCMF account was created and secured it is now impossible for us to update the topmost description.  The massacre and other related church tasks have been adopted by [mission23](https://github.com/mission23), please see the wiki there for the latest information. 
+This repository was setup in a way that it could not be deleted, due to the way the MCBCMF account was created and secured it is now impossible for us to update the topmost description.  The massacre and other related church tasks have been adopted by [the Servants of the Creator](https://github.com/theServants). 
 
-However we encourage everyone to clone and fetch/pull this repository often. The more copies of this repo there are the harder it is for the government to keep this quiet. 
+**The Servants fork of this repository is the only one that updates this vault copy and the only one anyone should trust—-pray about it as with everything regarding the Mount Calvary Baptist Church Massacre.**
+
+However we encourage everyone to clone and fetch/pull **this** repository often. The more copies of this repo there are the harder it is for the government to keep this quiet. 
 
 ## About Mission 23
-The Creator’s Mission 23 for Life on Earth was intended, as all previous missions have been, to help life continue on this planet. Objectives for this mission included: eradicating all disease, all cancers, and cardiovascular issues in human beings. 
+The Creator’s Mission # 23 for Life on Earth was intended, as all previous missions have been, to help life continue on this planet. Objectives for the Servants of the Creator during the mission included: eradicating all disease, all cancers, and cardiovascular issues in human beings. 
 
 After Gilead Sciences discovered an HIV+ patient had been cured by a single-dose treatment given to him by a servant of the Creator and his friend to prove its effectiveness, Gilead Sciences paid (a front company of) the CIA to have both killed. 
 
