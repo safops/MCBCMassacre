@@ -28,9 +28,9 @@ The church will not be having any Sunday worship or Wednesday Bible study servic
 ## About this Repository 
 This repository is focused on Mount Calvary Baptist Church on Todds Road in Lexington due to its maintainers long relationship with the church and family relationship with the pastor. Other churches on Todds Road we cannot speak for, but fear they have become part of the massacre turned genocide and cover up by the US government and CIA. 
 
-This repository was setup in a way that it could not be deleted, due to the way the MCBCMF account was created and secured it is now impossible for us to update the topmost description.  The massacre and other related church tasks have been adopted by [the Servants of the Creator](https://github.com/theServants). 
+This repository was setup in a way that it could not be deleted, due to the way the MCBCMF account was created and secured it is now impossible for us to update the topmost description.  The massacre and other related church tasks have been assigned to [the Servants of the Creator](https://github.com/theServants) by the Creator. 
 
-**The Servants fork of this repository is the only one that updates this vault copy and the only one anyone should trust—-pray about it as with everything regarding the Mount Calvary Baptist Church Massacre.**
+**The Servants’ fork of this repository is the only one that updates this vault copy and the only one anyone should trust—-pray about it as with everything regarding the Mount Calvary Baptist Church Massacre.**
 
 However we encourage everyone to clone and fetch/pull **this** repository often. The more copies of this repo there are the harder it is for the government to keep this quiet. 
 
@@ -45,13 +45,15 @@ The Creator’s servant, born Kelvin Eugene Williams, is now the only living mem
 
 ***
 # Ringing of the Bell
-The Creator is going to “ring the bell” very soon. The exact time is not going to be announced.  Scientists have often said that a very strong earthquake will ring Earth like a bell.  These earthquakes are intended to _shine a light_ on a horrible, unnecessary tragedy that culminated with a massacre of a church during the height of their worship hour.  
+The Creator is now about to “ring the bell.”  
 
-Regardless of how much work folks have done to get the story out and reported for your safety, the federal government and federal law enforcement agencies are still putting pressure on the Commonwealth of Kentucky's attorney and law enforcement to turn a blind eye and IGNORE the actions of the CIA. The CIA continues to kill in the very place that people go to and expect to be the safest and closest to God, who is none other than, the Creator.  
+Scientists have often said that a very strong earthquake will ring Earth like a bell.  These earthquakes are intended to _shine a light_ on a horrible, unnecessary tragedy that gave way to the massacre of a church during the height of its Sunday  worship hour, a massacre that has since been repeated, and the coverup operation that has spawned a genocide. 
 
-Obviously drunk on power, the CIA, the federal government and federal law enforcement need to sober up quickly, so the Creator, has decided to ring the bell.  It's a warning that they have forgotten who's universe, Earth, and country this landmass really is.  
+Regardless of how much work folks have done to get the word out and widely reported for your safety, the federal government and federal law enforcement agencies are still putting pressure on the Commonwealth of Kentucky's attorney and law enforcement to turn a blind eye to the actions of the CIA. The CIA continues to kill in the very place that people go to and expect to be the safest and closest to God, who is none other than, the Creator.  
 
-In addition to showing how displeased He is, the Creator is also honoring lives that have cut short in response to a set of "cures" (some of objectives in #mission23) that should have let all of these lives go on for far more years than 99% of the human population believe is even possible.  The way He designed and wants them to be lived. 
+With the genocide’s death toll increasing daily and the CIA along with the federal government pressuring law enforcement agencies and the media in the Commonwealth to stay quiet, the Creator has decided to ring the bell.    
+
+In addition to showing how displeased He is, the Creator is also honoring lives that have cut short in response to a set of "cures" (some His current objectives) that should have let all of these lives go on for far more years than 99% of the human population believe is even possible.  The way He designed and wants them to be lived. 
 
 # Earthquakes
 The order and intensity of the bell ringing will go:
